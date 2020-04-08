@@ -1,1925 +1,1573 @@
-You wake up and notice Anne is not in bed with you.
-You can hear the shower running.
-As you exit your room into the hallway way you see your dad peeking in on Anne in the shower.
-Dad, what are you doing?
-I was just looking to see if anyone was in there.
-Seriously dad, you can clearly hear the shower running. You’re spying on my wife.
-Fuck, fine! Yes you caught me creeping on your wife.
-So what did you see?
-She had just gotten in the shower.
-So you saw my wife naked?
-I did!
-Ok fine then, you can keep watching her if you want but if you get caught, I know nothing of this.
-You leave your dad to creep on Anne as you head to the kitchen to make breakfast.
-Done creeping on her already and thanks for putting on pants dad.
-I got scared and didn’t want to get busted.
-Ya probably smart of you, I don’t think that would have been a good scene.
-So what did you see?
-She had just gotten in the shower.
-So you saw my wife naked?
-I did!
-Ok dad! Why don’t you go in and see what happens.
-What? You want me to go in?
-Ya, here’s your chance. Go in and see what happens. Just tell her you have to pee really bad and see what she says.
-*Holy shit he actually went in. I didn’t think he actually would do it.*
-Luckily for you, your dad left the door partially opened.
-I’m sorry to barge in Anne, but I really have to pee.
-How does Anne react and respond to Martin barging in.
-Ok Martin but please hurry!
-I'll try!
-No peeking!
-The only way you would know I was peeking is if you were peeking too.
-Guess you got me there! No harm in looking right?
-If you say so.
-Yes but maybe we should be careful, %(t)s is home!
-*What's that suppose to mean?*
-He told me to come in!
-Is that so! Interesting!
-Here you get to make the choice for Anne again. Be careful!
-I do and here, I'll give you something to look at.
-Oh shit!
-*Oh shit is right. What the fuck?*
-*This is all my fault. I sent him in. What did I think would happen?*
-Come closer!
-Hmmm that's a large piece of equipment you have there.
-Impressed are you?
-To say the least.
-You have some very nice equipment yourself.
-Thank you.
-Would you like to touch it?
-Hmmm tempting....ok maybe just a little touch.
-Ok that's enough, you can't be doing this?
-Excuse me? I can't be doing this? You sent your dad in here!.
-I was kidding when I told him to come in, I didn't think he would actually do it.
-Well I'm sorry babe but your actions have consequences. Now you will stand back while your dad and I get to know each other better.
-*I can't believe this is happening.*
-Hmmm so nice, I need a little taste of this monster.
-Why are you stopping?
-Because I want something else.
-*Oh my god is she going to fuck my dad?*
-*OH my fucking god why is my cock getting hard! {p} I can't believe how much this is turning me on!*
-Oh fuck! I don't know if you will fit in! You're already stretching me.!
-Easy does it darling, easy does it.
-*He's gonna stretch her to new limits with that fucking cock of his*!
-Oh my god! I can't believe that monster is inside me and feels so fucking good!
-You haven't felt anything yet honey!
-OH Fuck! Oh fuuuuccckkkk!!! Sooo fuckiinggg gooooddddd! Oh my god!
-How you feelin sexy?
-Oh my god! Martin! I've never felt so full and sooo fucking incredible!
-I'm cummmmiingggg! Ohhhh fuccccckkkk I'm cummmmmiiiiiinnnnnngggg!
-*My dad made her cum! Holy fuck she's loud!*
-Oh fuck! Squeeze my cock baby! Cum on my cock!{p}I'm gonna cum!
-Cum inside me, I want you to fill my pussy with your spunk!
-Incredible, you are simply incredible!
-Thanks but I have to tell you that was the best I've ever felt from a cock inside me.
-I'm happy to hear that you enjoyed it as much as I did Anne.
-Martin leaves Anne to finish her shower.
-Thanks for a wonderful morning Anne!
-My pleasure Martin!
-So you really had to fuck her?
-Honestly son?? You would have done the exact same thing!
-What do you mean by that?
-A beautiful, sexy woman tells you she wants you to fuck her you'd fuck her in a heartbeat.
-*Fuck!! He's right!! I'm just like my dad!!*
-Fuck you! I'm goin to work!
-I do and here, I'll give you something to look at.
-Oh shit!
-*Oh shit is right. What the fuck?*
-*This is all my fault. I sent him in. What did I think would happen?*
-*All I can do now is watch as my dad and wife masturbate to eachother.*
-You watch your dad cum all over the glass as Anne moves to the floor of the shower and has her orgasm.
-Thanks for the show Anne, your looking great.
-Thanks and you too Martin!
-What the fuck dad? I thought for sure she would have gotten mad at you.
-Maybe you don’t know your wife as well as you thought you did, you did tell me to go in.
-*hmmm maybe I don’t!*
-Yes I did, but I really didn't expect that outcome. Let's go make breakfast.
-Your wife is a true work of art. She is the perfect woman in every way.
-Don't I know it.
-Looking really good Anne.
-Thanks and you too Martin!
-I thought for sure she would have gotten mad at you.
-Maybe you don’t know your wife as well as you thought you did.
-*hmmm maybe I don’t, and she kinda flirted with him too!*
-I see... alright, let's go make breakfast.
-Your wife is a true work of art. She is the perfect woman in every way.
-Don't I know it.
-Ok Martin but please hurry!
-I'll try!
-No peeking!
-The only way you would know I was peeking is if you were peeking too.
-I was not! Just hurry up please.
-I'm done!
-Looking really good Anne.
-Thanks and you too Martin!
-I thought for sure she would have gotten mad at you.
-Maybe you don’t know your wife as well as you thought you did.
-*hmmm maybe I don’t, and she kinda flirted with him too!*
-Let’s go make breakfast.
-Your wife is a true work of art. She is the perfect woman in every way.
-Don't I know it.
-Get out! Get out of here now!
-I'm sorry but I really....
-Martin! Get Out!!!
-Guess she didn’t like me going in.
-Guess not. Let’s go make breakfast
-Your wife is a true work of art. She is the perfect woman in every way.
-Don't I know it.
-So what did you see?
-She had just gotten in the shower.
-So you saw my wife naked?
-I did!
-Now I know where I get my perversion from, lets go make breakfast.
-Your wife is a true work of art. She is the perfect woman in every way.
-Don't I know it.
-Oh wow, everyones up.
-Of course! I have to leave for the office soon.
-Oh right, I forgot. You actually have to go to work now.
-That's right!
-You begin eating breakfast!
-As Anne shifts in her chair her towel slips a little exposing her gorgeous breast!
-Umm baby, I think your showing my dad a little more than you had anticipated.
-Oh my god oops sorry.
-I don’t mind at all.
-Definitely don’t be sorry about that. It was quite lovely!
-Haha Thanks martin.
-You all finish your breakfasts and you make your way to work.
-Fuck! One of you could have told me my boob was showing.
-Why would I say something that would ruin such a beautiful sight.
-Sorry baby, I didn’t notice.
-You all finish your breakfasts and you make your way to work.
-You make your way downtown to your office.
-As you enter you are greeted by a very cute blonde!
-Welcome Mr. %(t)s. I'm your personal secretary Olivia!
-Hi Olivia, very nice to meet you. I didn't even know I was getting a secretary.
-Well anythin you need I'm here for you, anything at all.
-*Tempting....Very tempting!*
-Thanks Olivia, I'll be sure to remember that.
-On your way to your office you meet a couple members of your new team.
-Hi I'm %(t)s.
-I'm very excited to learn and work with you %(t)s, we've heard lots of good stuff about you.
-I'm happy to be working with all of you and we will produce great material from here.
-Great to meet you %(t)s, I'm Chloe!
-*WOW, I'm gonna have a lot of fun here.*
-Great to meet you too Chloe, and you must be Jonathan!
-You've heard of me and my work?
-No sorry, I just read the nameplate behind you.
-Oh ok.
-You enter your office and find your boss sitting at you what is suppose to be your desk.
-Hi %(t)s, I know I told you yesterday that you could have this office but I changed my mind. {p}I'm taking it and you can have my old one.
-Ok. That works with me.
-Did you go to the wrong office?
-Ya, kinda! Mr. Boss man decided to use that office now after telling me yesterday it was mine.
-Seriously? That's lame!
-Ya but what can you do!
-You finally get in to your office and spend the morning getting things organized.
-*What should I do for lunch.*
-You get home to have lunch and don't see your dad there.
-*Hmmm, wonder where dad went to?*
-You make yourself a quick lunch and head back to work.
-On your way back to the office you decide to have a team meeting to get to know the team better.
-You enter the diner and are greeted right away!
-Hello, welcome to Rock Diner!
-Thank you, Is Naomi not working today?
-No sorry, Naomi doesn't work here anymore.
-Oh! Seriously? Well that sucks!
-Are you a friend of hers?
-Not a friend, she was my favorite waitress here. Do you know where she went?
-She's a good friend of mine. What's your name? I'll ask her if I can tell you.
-Oh cool, thank you. I'm %(t)s!
-You're the %(t)s! Ok she's told me about you. I'm Zarah, her roommate.
-She has? What has she told you.
-Ya! I know about the teasing and stuff.
-I see. Well say hi to her for me please.
-I will! So, did you want to get some food?
-Ya I'll get a Cheese Burger and rings please.
-Thank you, could I please get the Cheese Burger and rings please?
-You bet!
-*I do love the uniforms here.*
-*Hmmm is that on purpose or is she fixing it?*
-Do you come here often?
-No, not often but i've been here a couple times. And you?
-I live right across the street so it's very convenient!
-So thats a yes then. haha
-Yes it is.
-You live around here too?
-Ya not to far from here but I work next door.
-So, then I guess I'll be seeing you here more often.
-I guess so.
-Here you are %(t)s
-Ahh, thank you so much Zarah.
-My pleasure %(t)s!
-You eat your lunch quickly!
-Thank you for a great lunch.
-Why don't you give me you number and I'll pass it along to Naomi.
-For sure, thank you!
-Or... I may just keep it for myself.
-Haha, guess that will be up to you. {p} I need to get back to work. Nice meeting you Zarah!
-You too %(t)s!
-*I do love the uniforms here.*
-*Hmmm is that on purpose or is she fixing it?*
-Do you come here often?
-No, first time here actually. And you?
-I live right across the street so it's very convenient!
-So thats a yes then. haha
-Yes it is.
-You live around here too?
-Ya not to far from here but I work next door.
-So, then I guess I'll be seeing you here more often.
-I guess so.
-Here you are, your cheeseburger and rings.
-Ahh, thank you so much.
-You're welcome!
-You eat your lunch quickly then go back to work.
-On your way back to the office you decide to have a team meeting to get to know the team better.
-You decide to not have lunch and work for a couple hours until you have a thought!
-*Maybe I should get to know the team a little better and call them in for a meeting.*
-Hi %(t)s what can I do for you?
-I'd like to have a meeting with the team. Could you pull everyone into my office?
-You bet boss! We'll be right there!
-Thanks Olivia!
-Your team joins you in your office.
-You spend some time getting to know your team and what each individual does for you.
-Do you have an interest in one of the girls?
-Alright well lets get back to work, Chloe can you stay behind please for a few minutes?
-You spend some time chatting and getting to know Chloe a little better.
-You find out that she has been there for 3 years and is looking to grow with the company.
-She is the lead programmer on a couple projects.
-Now you ask her a couple personal questions.
-Are you married or have any children?
-Yes just got married 2 months ago but no children.
-Nice, how long were you together before getting married?
-We've been together since highschool so 8 years now!
-Wow, lucky guy.
-Haha.{p} It's really warm in this office, I'm gonna take off my blazer.
-Much better.
-That's a really cute top.
-Thank you, I really like it too. Maybe I will wear it more often for you.
-Hmm, that would be nice.
-I should get back to work before everyone starts to get suspicious
-Suspicious of what?
-You know! Two attractive adults behind closed doors.
-Haha, I see what you're getting at, but not so soon.
-Ya you're right. Let's wait till next week.
-Haha.!
-Chloe leaves and has you thinking that you may very much enjoy your new job.
-Alright well lets get back to work, Olivia can you stay behind please for a few minutes?
-You spend some time chatting and getting to know Olivia a little better.
-You find out that she has been there for 2 years and is looking to grow with the company.
-She is the lead artist on a couple projects.
-Now you ask her a couple personal questions.
-Are you married or have any children?
-Haha, No I'm not married. I've never actually had a boyfriend either.
-What? Seriously?
-Ya, I've dated a couple guys but never would call them my boyfriend.
-I'm sorry to hear that.
-No don't be, I'm very happy with my life. But I should get back to work.
-Ok Olivia, thanks for your time.
-Olivia leaves and has you thinking that you may very much enjoy your new job.
-Alright well lets get back to work, Tiffany can you stay behind please for a few minutes?
-You spend some time chatting and getting to know Tiffany a little better.
-You find out that she has been there for 2 years and is looking to grow with the company.
-She is the lead writer on a couple projects.
-Now you ask her a couple personal questions.
-Are you married or have any children?
-Not yet married and definitely no kids. I'm engaged.
-Nice, How long have you been together?
-You notice that another button has come open on her shirt.
-4 years and engaged for just under 1.
-You glance down at her tits and maybe linger a little too long.
-Tiffany catches your look down to her chest.
-Oh shit, these buttons just wont stay shut.
-Are we done here? I'd like to get back to work.
-Yes we're done. Thanks for your time Tiffany.
-Umm your buttons are coming undone you're almost falling out.
-Oh shit, these buttons just wont stay shut but thank you for letting me know %(t)s.
-You're welcome.
-Almost flashed my boss my boob on his first day on the job.
-Haha, wouldn't that be something.
-Haha, Maybe on day 2 or 3 but not day 1.
-Hmm something to look forward to then.
-Maybe, I should get back to work before everyone starts suspecting something.
-Alright Tiffany, thanks for your time.
-Tiffany leaves and has you thinking that you may very much enjoy your new job.
-You spend the rest of the afternoon working then head home.
-Hi babe! It's weird to be home before you.
-Yes it is. I'm used to greeting you at the door.
-Are we ok babe?
-What do you mean?
-Are you upset with me for this morning?
-How was your first day at the office?
-It was good, I had a meeting and got to know the main part of the team. How was your day?
-Long, very long. Kenny was in meetings all day so I didn't see him at all.
-Aww poor you! haha
-It's all your fault, you pushed me to fuck him and now I want more.
-Sorry baby. You can always have me.
-I know, tonight I want you.
-Sounds good to me. Oh, do you know where my dad is?
-Ya this morning he said he would be home late tonight. He was meeting up with an old friend.
-Ahh ok.
-You head to the dining room where Anne has prepared dinner.
-No I'm not upset with you baby. At first I was a little taken back by it all but.... You know me...
-It turned you on.
-You got it.
-It was honestly a lot of fun with your dad.
-Maybe you can have fun with him again tonight.
-No, tonight I want to have fun with my husband.
-Well I love the sounds of that.
-You head to the dining room where Anne has prepared dinner.
-Ya kinda baby, I didn't want anything happening with my dad.
-But why did you send him in there then?
-Just to shock you or get a rise out of you.
-I thought for sure that was what you wanted.
-I've never told anyone this before but when I was younger a few of my girlfriends left me because of my dad's thing!
-What do you mean?
-Well, my dad fooled around on my mom all the time and usually with my girlfriends. Once they got a taste of his cock mine just wasn't good enought anymore.
-I see babe! Well your dad's cock may have been pretty fantastic but you are the man that I love and have vowed to spend my life with. No other man will do.
-I love you baby, so friggin much.
-I love you too babe!
-If you want to have fun with dad tonight go for it. He's leaving tomorrow.
-Thanks, but no thanks. Tonight I want to have fun with my husband.
-Well now, I do love the sounds of that.
-You head to the dining room where Anne has prepared dinner.
-This looks delicious baby! Thank you for making supper tonight.
-You're welcome babe.
-I was thinking of ordering pizza tonight but we can do that another night.
-I'm good with pizza tomorrow night if you want?
-Alright, sounds good to me.
-You both finish off your dinners.
-Do you feel like watching a movie or going straight to bed?
-You watch a movie with Anne before going to bed.
-Is my loving husband ready for a little fun with his wife?
-You bet baby!
-Get on top, I want to watch your body move!
-Like this!{p} I love when you watch me.
-Oh and how I love watching you baby!
-So good babe! Fuck me! Fuck my pussy!
-I love the way you move your body on top of me!
-I'm cummmmingggg babe! YES!! Oh FUCK YESSSS!
-I'm gonna cum too baby!
-Yes babe! Cum for me.
-Let me cum in your mouth!
-Oh fuck ya, here it comes baby!
-That was great babe!
-Yes it was, you are always incredible.
-Cum on my tits. I want to see you explode all over me.
-OOOOHH FUCKKK!
-I love watching you explode all over me.
-Oh fuck that's so fucking good!
-Cum inside me babe! I want you inside me.
-OOOOHH FUCKKK!
-I love feeling you explode inside me.
-Oh fuck that was good!
-I was thinking that maybe, if you're up to it of course, you could give my dad one more go around tomorrow morning before work.
-Oh you were thinking that were you? 
-Ya, I think dad would enjoy that and you may convince him to come visit more often.
-Ok babe! For you I will do this so you can see your dad more often.
-Funny girl, you know you want it!
-Let's go to sleep now.
-Ok baby. Love you!
-Love you too.
-Nothing even comes close to feeling as good as sex with you.
-You're cute babe! Let's go to sleep.
-Ok baby, Goodnight. I love you!
-I love you too babe! Goodnight.
-Babe! Wake up!
-Babe!
-Wake up!
-I think there's someone is in the house.
-What time is it?
-It's 6am!
-Baby! {p} That's dad, he's always up at 6.
-Oh right, I forgot! So now that he's out of bed I guess we aren't playing.
-Why not? Just tell him you want to show him you have something for him and bring back to the bedroom.
-Anne gets out of bed and stands by the door.
-Ok, are you sure you're ok with this?
-Oh shit that's right, I completely forgot he was still here. I'm sorry for waking you up.
-That's ok. Guess I should get up and get ready for work anyways.
-You both get up and get ready for work then head out to the living room.
-Good morning dad!
-Good morning you two.
-Morning!
-Thanks for spending a couple days with us dad, it was nice having you around.
-Ya it was really good having you here.
-Thanks. I'll have to come visit more often.
-Nice! We'd like that.
-Well I hate to cut this short but I have to go.
-Yes of course baby, It was my idea afterall.
-Ok then, here I go. You'll be watching right?
-Wouldn't miss it for the world.
-Love you babe!
-Love you too my little slut! Have fun.
-You know what, I think I changed my mind. He had you yesterday, that's enough.
-Haha, funny babe! I'm going to fuck you dad!
-Anne leaves thinking your were kidding.
-Oh well I'm not chasing her out there.
-You wait a few minutes giving Anne time to get him to the bedroom.
-You listen through your bedroom door and hear Anne talking just outside the room.
-Just wanted to show you something before you leave.
-You wait a couple more minutes then head out to the hallway.
-*Hmmm Anne did her robe up.*
-What did you want to show me?
-Oh just this!
-And where is %(t)s
-He left for work already.
-You do realize that you can't show me that and not expect me to touch!
-Oh I expect you to touch and do a whole lot more than that.
-I see he's ready to go already!
-One look at you and he's ready to go.
-You have the most incredible body!
-Thanks martin. Now get over here cause we don't have much time. I need to get to work.
-You got it!
-Ahh Yes!! That's what i wanted.
-Oh god yes! Martin fuck me!
-I'm about to cum!! I'm gonna..... Here it comes!
-Me too Martin!!! FUCKKKKKK YESSSSSSSS!!!!!!!!
-*She's holding him inside her.*
-*Wow! Anne did tell him that they had to be quick but....*
-You made a mess of my pussy!
-Ahh but you loved every minute of it.
-That's true, I sure did!
-You leave for work as Anne had told your dad.
-You spend the first half of the morning working and then hear a knock on your office door.
-Come in!
-You spend the whole morning working until the phone is ringing.
-Caller hangs up.
-Fucking prankster.
-Hi boss, can i come in for a couple minutes to talk to you?
-Of course Chloe, you're always welcome to come talk to me.
-Ok so first of all, yesterday you mentioned that you really liked my top, so I thought I would show you the white version of it.
-Umm ok!
-So? What do you think of the white one?
-I really like the white, just as much as I liked the pink one yesterday.
-Thanks %(t)s, I really like these tops too. I may get other colors.
-I'm sure no article of clothing would look bad on you.
-I wish.
-And what is the second thing you wanted to see me about?
-I was wondering if you and your wife would like to have dinner with my husband and I this Friday at our place?
-Hi boss, can I have a word with you?
-Of course Tiffany, have a seat.
-What's up?
-My fiance was able to get the next couple weeks off, so I was wondering...
-You don't let her finish her sentence.
-Yes you can too. Enjoy your two weeks with your fiance.
-Oh my god you're amazing! I didn't think you would give it to me.
-You notice that her buttons have again opened up a little more on her shirt.
-Hi boss, can i come in for a minute?
-Of course Olivia, have a seat.
-I don't want to take up too much of your time but I was just wondering if there was anything you needed from me at all today?
-Not at the moment, I'm good Olivia.
-Are you sure, I feel like my services are not being used.
-I'm honestly really good! Thanks though.
-Well I honestly want to do something for you, let me get you a coffee...or maybe you would prefer...
-What's something from in here?
-That sounds really nice, we would love to come for dinner.
-I'm excited that you have agreed! I look forward to Friday now and maybe showing you some more of my tops if you're interested.
-Of course I am, but wont your husband mind?
-Not at all!
-That's all I wanted so I'll go back to work now.
-Thanks for coming in and the dinner invitation. I'm looking forward to it.
-I'm sorry but I don't think it would be approriate to have dinner with an employee.
-Ok then, but if you change your mind the offer stands.
-Thanks Chloe!
-Oh my god! Seriously? You'd think I was doing it on purpose.
-Are you?
-Oh well now you've seen more cleavage. If you don't mind, I don't mind. It's not like they're fully exposed.
-True! I don't mind at all if you don't, It's just a little skin.
-Thanks for giving me those two weeks %(t)s, I'm so happy! I'll go back to work now.
-You're welcome! Hope you and your fiance have a great time together.
-I'm sure we will, thanks to you!
-Seems like your having issues with your buttons again Tiffany!
-Oh my god! Seriously?
-Oh well now you've seen more cleavage. If you don't mind, I don't mind. It's not like they're fully exposed.
-True! I don't mind at all if you don't, It's just a little skin.
-Thanks for giving me those two weeks %(t)s, I'm so happy! I'll go back to work now.
-You're welcome! Hope you and your fiance have a great time together.
-I'm sure we will, thanks to you!
-Ok, I'll just get a coffee.
-Have it your way, I'll be right back.
-Why don't you come a little closer and show me what you have to offer.
-Would love to.
-Looks good, but now lose the skirt!
-Sure thing boss!
-Get up on the desk and spread your legs.
-You want to fuck my pussy boss!
-Fucking rights I'm gonna fuck that pussy!
-Oh fuck ya! Fuck me boss! Fuck my wet pussy!
-Ya!! Yeah this is good!!
-Oh God yessss, I've never felt anything so good!
-OHHHHHH FYUCKKKKKKKK!
-I'm gonna cum!
-Oh fuck! Oh fuck ya!
-I think I'm going to enjoy having you as my boss and pleasing your every need.
-I like the sounds of that.
-I guess I should get back to work now.
-Sounds good Olivia!
-You return your attention to your own work until quitting time then head home.
-Hi babe! Welcome home.
-Hi baby, how was your day?
-Very busy and again Kenny was out in meetings all day. How was your day?
-Went by very fast. Oh and we're invited for dinner on Friday with a couple from work.
-Oh cool, will be nice to meet a new couple. Dinner's ready by the way.
-You're amazing baby, thank you!
-I know!
-It went by fast and ummmm I may have been a bad boy!
-Let me guess! You fucked your secretary?
-How the fuck do you know?
-Seriously babe! That's it? You fucked your secretary?
-Yeah! I'm sorry!
-Why be sorry? It happened, so be it! Thanks for being honest with me! And dinner's ready by the way!
-You're amazing baby, thank you!
-I know!
-Not very eventful at all but it did go by fast.
-Dinner's ready!
-Thank you baby, you're amazing.
-I know.
-Is that a new outfit? It's looks amazing on you.
-Aww thanks for noticing babe! It is new, I bought it last week and hadn't worn it yet.
-Well it fits you very well!
-Thanks babe!
-Have we gotten the new activity challenge yet?
-I haven't checked yet. I will check emails right after dinner.
-I'll go check my emails now.
-You go to your office and pull up your emails.
-This is the 5th and final part of the pizza delivery dares. {p}With this one, what you do is entirely up to you.{p}Take it as far as you would like to and have fun.{p}The goal is to challenge yourself and let your inner goddess out.
-*Interesting. I wonder how far Anne will take it.{p}She's already been felt up by him....maybe a blowjob.*
-You join Anne in the living room.
-So what is this weeks activity?
-It's the final part with the pizza guy.
-Really? And what's involved?
-It's up to you, you can do what ever you please with him. Just challenge yourself!
-Too bad you didn't check earlier I could have been having fun with the pizza guy right now.
-Haha, you're funny. So how far will you go with him?
-Huh, I don't know.
-We'll see when it happens I guess.
-What do you feel like doing tonight?
-Why don't we see what Phil and Donny are up to?
-Sure, let go!
-You make your way to your their door and Anne knocks.
-Doesn't look like they're home.
-Knock one more time.
-Anne knocks another time.
-You head back to your appartment.
-So what do we do now?
-Guess we can watch a movie together.
-I don't really feel like doing much, why don't we just watch a movie then go to bed.
-Ok baby, you can pick the movie.
-Anne selects the movie and you both cuddle up.
-I'm a little uncomfortable, I'm gonna go get changed. I'll be right back babe!
-Well that looks a lot more comfy.
-Anne end up falling asleep on you.
-You carry her to bed.
-You of course take a couple minutes to admire her beauty from behind.
-I love you baby! Goodnight!
-Why don't we meet up with Damien, the guy from the gym, for a couple drinks?
-Sure let's do it.
-Better see if he's available.
-He can't meet us tonight, but he's free tomorrow night.
-Sounds good to me, now we have something to do for tomorrow night but still need to figure out tonight.
-Yeppers!
-Why don't we go up and introduce ourselves to the swingers?
-You know what baby? That's a great idea, should we get changed?
-Nah, no need. I'm just staying like this, I'm comfortable.
- Alright let's go then.
-You make your way to your neighbors appartment.
-You knock on the door.
-Hope they're home!
-Can we help you?
-We are Anne and %(t)s, and we are new to the building, two floors down and thought we'd introduce ourselves to our neighbors.
-Well how nice of you, I'm William and this is my beautiful wife Vicky!
-Nice to meet you both!
-We just opened a bottle of wine, would you like to join us?
-Of course! We would love to.
-Superb, come in.
-I'll go grab the bottle and glasses.
-Thanks honey!
-As Vicky is heading to the kitchen you check out her ass.
-*Not bad!*
-*But that's the ass I love*
-When did you move in?
-A few weeks ago. How long have you two lived here.
-I guess it's been about two years now. What do you both do for fun?
-Go ahead babe!
-We love to travel, going to the beach and meeting new people.
-As we are tonight.
-The wine is served!
-Thanks for grabbing it.
-I overheard you mentioning you enjoy travelling, do you travel often?
-I wouldn't say we travel often but we do try to do at least two trips per year.
-Ya, one in the spring and one in the fall. Breaks up the work year nicely.
-Do you guys travel?
-We try to do one trip per year and this year we're going to Jamaica.
-We leave in a week and I really can't wait to get out there.
-Jamaica is beautiful, I was in Montego Bay a couple years back and loved every minute of it. I would definitely go back.
-Montego Bay is where we are going, are the beaches all nude?
-Not all of them no, there's a couple of them but most beaches are ok with topless sun tanning.
-Good to know.
-You spend the next two hours chatting with your new friends and drinking wine and are now feeling pretty good and unfiltered.
-So..umm a little birdy told us that you two are swingers? It this true?
-Do you want to take this honey?
-Sure, so yes, you have heard right. We have been living as swingers for the last 3 years and have never looked back.
-As swingers you always play together? I mean, you are always together and never alone with other people.
-That's correct. And it's mutually agreed on who we play with.
-Are you two interested in the lifestyle or have you experimented sexually yet?
-We have experimented but have never played with another couple.
-You spend the next 30 minutes explaining the play times you and Anne have had.
-This may be the wine talking right now but would you two like to play with us?
-Tonight?
-Sure why not?
-I'm sorry but I don't feel like tonight is the night, but it was great meeting you both and thank you for the wine.
-No problem, no pressure.
-Ya of course, if you're not feeling it then we don't want you to feel pressured to do anything with us.
-I appreciated that and thank you very much for a great evening.
-Both you and Anne head back to your apartment.
-Ya, I think it sounds fun. How do we start?
-Ya, I think that sounds like a lot of fun. How do we start?
-First we'll head to the bedroom and Vicky and I will start and when you're comfortable then join in.
-Perfect.
-You make your way to the bedroom and watch as William and Vicky get undressed and start making out on their bed.
-Are you sure you're ok with this baby?
-Anne does not take her eyes off them as she answers you.
-Yes I am.
-Ok just wanted to make sure.
-I want to join them.
-Ok baby...
-Vicky steps up right in front of you and grabs you cock.
-And are you ready for some fun with me?
-I know this is gonna sound weird but honestly I just want to watch.
-Ahh you're one of them.
-If you want to play, I'll be right over there with your wife.
-You watch Vicky climb on the bed and join in the fun.
-William begins to fuck Anne as he kisses up Vicky's neck.
-Anne seems to be enthralled by Vicky's ass.
-*Oh shit... Anne is eating Vicky's pussy. This is so fucking hot!*
-Anne looks your way looking for reassurance as you nod to her and smile.
-You hear and watch Anne as she erupts into orgasmic bliss with William's cock burried inside her and Vicky licking her clit.
-I'm gonna cum girls.... get ready!
-Arrg ya!! Fuck ya!
-Why didn't you join in with us?
-You know me baby, I just love watching you having fun!
-Do you want to kiss me with this cum on my face?
-Umm, no thanks. Wipe it off and then I'll kiss you.
-Ok, lets go home!
-Anne gets dressed and head back home.
-I don't care what's on your face, I just love kissing you!
-Really? I didn't think you would want to.
-I love you babe! Tonight was a lot of fun.
-It sure looked like fun and I really enjoyed watching you have your fun.
-Should we go home now?
-Ya let's do that.
-Thank you for a great evening and experience. Have a good night.
-Thank you Anne, You were amazing.
-Till next time.
-Anne gets dressed and you head back home.
-As ready as I'll ever be.
-You get undressed and sit on the edge of the bed as Vicky kneels before you.
-You look over as William is penetrating your wife's pussy.
-Vicky engulfs your cock in her mouth and sucks your cock as you watch Williams cock slide in and out of Anne pussy.
-You can now hear Anne panting and moans escaping her as your cock now impales Vicky.
-*I can't believe how good this feels, hearing and watching Anne fuck as I'm burried inside this pussy.*
-Oh my god! I'm cumming! Yesss Yesss Yesss!
-I'm gonna blow now too honey!
-Vicky get's off your cock after her orgasm and sucks your cock until you blow as she watches her husband shoot a large load all over your wife's ass.
-The four of you lay on the bed together relishing in the lusful moments that preceded.
-We should be getting home baby, we both have to work tomorrow morning and it's getting late.
-I wish it was the weekend.
-Thank you both for a wonderful evening, I've had a lot of fun.
-Yes, thank you very much.
-Anytime, hopefully we get to do this again.
-You can count on it.
-You both get dressed and head back home.
-I don't think so, not tonight.
-Seriously babe? Why not?
-I wasn't planning on staying, we were just introducing ourselves.
-What if I want to stay?
-I would prefer if you came home with me baby.
-Seriously?
-Sorry baby, I'm not feeling it tonight.
-You head back home.
-Ok, so can you please explain to me why we go over to a neighbors apartment who we know are swingers and when they ask us to join them you say, not tonight?
-Really baby, I honestly didn't think they were attractive at all and they were not the couple I wanted to play with as our first couple.
-Ok ya, they weren't the most attractive but they did seem like they would be fun.
-Ya maybe but I just want our first time with a couple to hot!
-Ok babe! I understand. Let's watch a movie then go to bed.
-Sounds good to me.
-Then stay, but I'm going home.
-Seriously?
-I'm sorry but we only play with couples. Unless you both come in, there's no playing with us.
-Sorry baby, I'm not feeling it tonight.
-You head back home.
-Ok so can you please explain to me why we go over to a neighbors apartment who we know are swingers and when they ask us to join them you say, not tonight?
-Really baby, I honestly didn't think they were attractive at all and they were not the couple I wanted to play with as our first couple.
-Ok ya, they weren't the most attractive but they did seem like they would be fun.
-Ya maybe but I just want our first time with a couple to hot!
-Ok babe! I understand. Let's watch a movie then go to bed.
-Sounds good to me.
-That was alot of fun but I am now exhausted.
-Me too baby, I am definitely ready for bed.
-Same here.
-Ok baby, lead the way.
-Why are you so obsessed with my ass?
-Seriously baby? Have you looked at it lately? It doesn't get much better!
-It's just an ass!
-It is not just an ass, It's my beautiful wife's perfect ass.
-You both get into bed.
-Goodnight baby, I love you.
-I love you too babe, and thank you for a great evening.
-Good morning!
-Good morning babe! I really don't feel like getting out of bed today and going to work.
-Really? You don’t want to see Kenny?
-Honestly, today I just wanna stay in bed.
-Call in sick and stay in bed.
-You know what? I've never called in sick, so I'm gonna do just that. Thanks babe.
-Ok, but I need to get up and get ready.
-Hope you have a great day babe!
-Get some rest and hope you feel more alive tonight.
-You have a quick shower
-You have breakfast.
-I'm out of here.
-I love you babe!
-Love you too baby.
-You make your way to work.
-You spend the morning working.
-Meanwhile at home......
-Anne laid in bed and once she heard the door close from you leaving....
-She began sliding her hand into her panties.
-Anne closes her eyes and begins to fantasize.
-Anne is fantasizing about the swingers club with a new couple.
-*I love watching my husband pleasure another woman as her husband is burried deep inside me.*
-OH GOD! Yesssss I'm cummming! FUCKKKKK!
-Oh God ya!
-Yes! Yes That's it!
-Oh Yesssss
-Oh Yes! Fuck me, Fuck meeeeeee! Let my husband see how good you fuck me.
-YESSSSSSSSSSSSSSSS!
-After a few minutes of recovering from her orgasm Anne gets up and gets dressed then head to the living room to watch tv.
-She spends the rest of the afternoon there until you get home from work.
-Re-playing the massage with Ryan. How different it would end now.
-*Oh how I wish Ryan would come visit again soon.*
-*I would love another massage with his strong hands all over my body. {p}I would love his big cock deep inside me.*
-*Oh fuck Ryan, I'm cumming! OH FUCK! Oh Fuck Yessssss!*
-*I will swallow your big cock and all that It has to give me. Come visit me Ryan*
-Oh God ya!
-Yes! Yes That's it!
-Oh Yesssss
-Oh Yes! Fuck me Ryan, Fuck meeeeeee!
-YESSSSSSSSSSSSSSSS!
-After a few minutes of recovering from her orgasm Anne gets up and gets dressed then head to the living room to watch tv.
-She spends the rest of the afternoon there until you get home from work.
-Anne is fantasizing about how she would like Damien to handle her at the gym.
-Damien pushes Anne forward and penetrates her from behind forcefully making her squeal with desire.
-Damien pick her up and continues attacking her pussy with his large cock inside her.
-*Fuck me Damien! I'm cumming on your big cock! Fuck MEEEEEEEE!*
-*Cum all over me Damien! Cover my body!*
-Oh God ya!
-Yes! Yes That's it!
-Oh Yesssss
-Oh Yes! Fuck me Damien, Fuck meeeeeee!
-YESSSSSSSSSSSSSSSS!
-After a few minutes of recovering from her orgasm Anne gets up and gets dressed then head to the living room to watch tv.
-She spends the rest of the afternoon there until you get home from work.
-Nothing comes to her mind to fantasize about!
-{i}Maybe you should let her have some fun!{/i}
-Let just get back to your boring office!
-Back at your office at lunch time.
-*What should I do for lunch?*
-You eat your lunch at your desk.
-You now return to work until it is time to go home.
-You make your way home.
-You decide to go next door to the diner.
-You enter the diner and see Zarah and the same girl from Monday who lives across the street, but you never got her name.
-Hi %(t)s, welcome back!
-Thank you Zarah!
-So your name is %(t)s! On monday after you left I was kicking myself for not getting your name.
-Yes that's right I am %(t)s and your name is?
-I'm sorry, It's Shannon!
-Nice, now we know each other's names.
-I have some news from Naomi for you!
-Oh do you? Tell me.
-Come closer.
-Closer!
-Ok, so what is the news.
-She says to tell you that she misses you and to not tease you too much here.{p} She also asked me to invite you to our place tomorrow evening.
-You enter the diner and see the same waitress and girl from Monday who lives across the street, but you never got her name.
-Welcome back!
-Thank you
-On monday after you left I was kicking myself for not getting your name.
-Ya, I thought the same thing after leaving but you said you came here often so I knew I'd have another chance. {p} %(t)s is my name.
-And I'm Shannon!
-Ready to order?
-Yes sorry, I'll have the cheeseburger and rings again please.
-Coming right up %(t)s.
-Thanks and now that you know my name, can I have yours?
-Sure, why not....It's Zarah!
-Today is a good day, two beautiful names for two beautiful girls.
-*Holy shit, she's flirting with me and flashing me her fucking sexy ass!*
-As Zarah walks into the kitchen, Shannon starts talking to you.
-You have lunch at the same time everyday?
-Yes I do? Why do you ask?
-Well, I would like to have lunch with you Friday at my place.{p} If you show then great if you don't then I wont try again.
-She does not give you a chance to say anything.
-Just know that I will make it worth your while.
-She walk away and leaves the diner.
-Checking out her ass?
-Zarah sneaks back up to you and startles you when she busts you getting a rear view of Shannon.
-Zarah leans in closer.
-So her ass or mine?
-Well since you are right here in front of me right now, I have to say yours.
-Good answer. {p}Enjoy your lunch!
-Thanks!
-Here's a another look, in case you missed it earlier.
-You have a great ass !
-Thank you %(t)s, lots of squats for this baby!
-Zarah dissapears into the kitchen and you can now eat your lunch.
-You quickly eat your lunch and don't see or another customer for that matter until you stand and are about to leave.
-Have a great afternoon and thank you for coming in.
-You too, and thank you for the ass flashes. You made my day.
-Glad to hear. See you next time.
-You bet!
-You head back to your office.
-I'll definitely be there, and looking forward to it.
-Me too and I'm sure Naomi will be too. {p}So, cheeseburger and rings for you today?
-Wow you remembered my order, yes please.
-*Holy shit, she's flirting with me and flashing me her fucking sexy ass!*
-As Zarah walks into the kitchen, Shannon starts talking to you.
-You have lunch at the same time everyday?
-Yes I do? Why do you ask?
-Well, I would like to have lunch with you Friday at my place.{p} If you show then great if you don't then I wont try again.
-She does not give you a chance to say anything.
-Just know that I will make it worth your while.
-She walk away and leaves the diner.
-Checking out her ass?
-Sneaks back up to you and startles you when she busts you getting a rear view of Shannon.
-Zarah leans in closer.
-So her ass or mine.
-Well since you are right here in front of me right now, I have to say yours.
-Good answer. {p}Enjoy your lunch!
-Thanks!
-Here's a another look, in case you missed it earlier.
-*I'd love to fuck that ass!*
-You have a great ass Zarah!
-Thank you %(t)s, lots of squats for this baby!
-Zarah dissapears into the kitchen and you can now eat your lunch.
-You quickly eat your lunch and don't see or another customer for that matter until you stand and are about to leave.
-Seriously, were you about to leave without saying bye?
-Of course not!
-Liar! Anyways, have a great afternoon and looking forward to dinner tomorrow night.
-Me too, see you tomorrow.
-Bye %(t)s!
-You head back to your office with gorgeous ass on your mind.
-I'm sorry but I'm not going to be able to make it. I already have plans for tomorrow evening.
-Oh ok. I'll let Naomi know and maybe, we'll reschedule for another day. {p} So, what's you having for lunch today?
-I'll get the cheeseburger and rings again please.
-As Zarah walks into the kitchen, Shannon starts talking to you.
-You have lunch at the same time everyday?
-Yes I do? Why do you ask?
-Well, I would like to have lunch with you Friday at my place.{p} If you show up then great if you don't then I wont try again.
-She does not give you a chance to say anything.
-Just know that I will make it worth your while.
-She walk away and leaves the diner.
-Checking out her ass?
- sneaks back up to you and startles you when she busts you getting a rear view of Shannon.
-I was just taking a look.
-Zarah leans in closer to you.
-Did you have a look at my ass too?
-Maybe I did, maybe I didn't!
-Here I will make it easy for you to look at it.
-Holy shit Zarah, you're not shy.
-So...who's ass did you prefer? Mine or Shannon's
-Yours of course.
-You're just saying that now, because Shannon is gone.
-No, I'm serious. You have a great ass.
-Thanks %(t)s, and just think, you could have seen a lot more tomorrow night if you had said yes to dinner.
-Zarah dissapears into the kitchen and you can now eat your lunch.
-You quickly eat your lunch and don't see Zarah or another customer for that matter until you stand and are about to leave.
-Seriously, were you about to leave without saying bye?
-Of course not!
-Liar! Anyways, have a great afternoon.
-You too.
-Bye %(t)s!
-You head back to your office with Zarah gorgeous ass on your mind.
-You now return to work until it is time to go home.
-You make your way home.
-What a beautiful sight to come home to.
-Hi babe! I didn't hear you come in.
-Are you feeling any better?
-Ya I stayed in bed for about an hour after you left and have been watching tv since.
-Lazy day!
-Very and well deserved if I may say so. {p}How was your day?
-Busy as always, but it does make the day go by fast. {p}I'll be home a little late tomorrow night as we have a big company meeting.
-Ok babe, I'll go out with Nicole for supper.
-Dinner is on its way by the way.
-Pizza?
-You know it! I'm gonna go get changed and be right back.
-Busy as always, but it does make the day go by fast.
-Very true. {p}I was thinking that maybe we should invite Mike and his wife over for dinner tomorrow night.
-Sounds good baby!
-Dinner is on its way by the way.
-Pizza?
-You know it! I'm gonna go get changed and be right back.
-You wait for anne to return.
-Holy shit baby, you look hot! But I thought for sure you would be naked this time.
-Nah! I'm feeling a little playful and thought I'd have a little fun.
-Are you feeling naughty too?
-You'll have to wait and see...
-You hear a knock at the door and Anne goes to answer it.
-So good to see you again.
-Yes it is, it's been a couple weeks, come in!
-You look so different without your hat.
-Hopefully better different?.
-Definitely better.
-And what do you think of my outfit?
-It's hot! {p}I think this is the most clothes I've see on you.
-Haha!
-Let me deal with this pizza first.
-Anne puts the pizza down and gives you a cheeky smile.
-*Uh oh! What is she up to now*
-So as you said, I am wearing more clothes than you had seen me in previously.
-I was wondering if you would like to help me remove them.
-Shit ya, I would.
-Start with my bra! And as a reward you get to touch the area you uncovered.
-I can't believe I'm doing this right now.
-You have a soft touch! I like it.
-Gotta make sure to no neglect one.
-Smart guy you are! {p} Panties or stockings next?
-Panties, I would prefer you kept the stockings on with the shoes.
-I am so in love with your ass!
-You and my husband are the same and obsessed with my ass.
-We know a great ass when we see one.
-Yes sir!
-Oh my! You are very wet.
-Anne looks at you biting her lip as the pizza guy rubs her wet pussy.
-So have you had enough of me or would you like to do something else?
-Would you be willing to..ummm.....?
-Common spit it out. Can't do anything if you don't tell me what it is you want to do with me.
-I want to fuck you!
-I was hoping you'd say that! {p}So that's a yes! {p}And so I finally get to see your cock after you seeing me naked a few times now.
-All you had to do was ask.
-Can I see your cock please?
-I will show you as much of me as I've seen of you.
-Oooh, nice.
-I think I may have some fun.
-I hope so!
-Love the way it growing in my hand.
-You ready to fuck my pussy?
-Never been more ready for anything in my life.
-Oh fuck! I'm getting close... OHHH FUCK ME!!!
-Not yet! Turn around I want to look at your beautiful face as you cum on my cock!
-Oh fuck! You feel so good inside me!
-By far the sexiest pussy I've ever fucked.
-Yessss! Just like that! Yesss Fuck me! Yesss! Oh fuck! OH FUCKKKKK!
-OHHHH MY GODDDDD!!!!
-You pussy is squeezing my cock! Oh here it cummmms!
-OH Shit!!! I've never cum so much before. {p}That was unreal!! You have an unreal talent with that body and pussy of yours.
-You're welcome! Glad I could be of service.
-I wish I could stay here all night with you, but I have to get back to work. My boss is gonna shit down my throat!
-Sorry to have kept you longer.
-Fuck that! Don't ever be sorry for what we just did. It was unreal and it was well worth it.
-Would you be willing to..ummm...suck my cock?
-Yes! And so I finally get to see your cock after you seeing me naked a few times now.
-All you had to do was ask.
-Can I see your cock please?
-I will show you as much of me as I've seen of you.
-Oooh, nice.
-I think I may have some fun.
-I hope so!
-Love the way it growing in my hand.
-Do you like that?
-Fuck ya! I'm gonna blow and second...just keep going!
-Here it comes...OH FUCK FUCK FUCK!!!!!
-OH Shit!!! I've never cum so much and so fast in my life from a blowjob!! {p}That was unreal!! You have an unreal talent!
-You're welcome! Glad I could be of service.
-I wish I could stay here all night with you, but I have to get back to work. My boss is gonna shit down my throat!
-Sorry to have kept you longer.
-Fuck no! Don't be sorry. It was well worth it.
-The pizza guy gets dress!
-Thanks for the pizza and a little fun.
-My pleasure and thank you. Can't wait for your next order.
-Have a good night.
-You too.
-The pizza guy leaves the apartment and Anne joins you on the couch.
-Hope you enjoyed that as much as I did?
-Shit ya baby. That was very hot.
-Can't believe you let him fuck you, but it sure looked like you were enjoying it.
-Ya, I can't believe I let him fuck me either. At first I was just gonna suck him but then I wanted him inside me so I fucked him.
-I'm so pround of you, my little slut!
-I thought for sure you were going to fuck him.
-I thought about it, and came very close to telling him to fuck me but I held back.
-Why?
-I don't even know his name. haha
-I wish I could stay but I really need to get back to work so I don't get fired.
-Seriously? It's now or never!
-I really need to get back! It's been fun.
-The pizza guy leaves.
-What the fuck just happened? That was so weird!
-Maybe he's recently gotten a girlfriend and now he feels like he cheated. Who knows though, I thought for sure you were going to fuck him.
-I don't know if I would have fucked him but I would have had a little fun for sure.
-You eat the pizza together.
-What now?
-Let's just go to bed.
-Ok sounds good to me.
-Goodnight babe! I love you!
-Oh ok, you're actually going to sleep. Alright Goodnight baby. Love you too.
-You eat your pizza for dinner.
-So what time are we meeting up with Damien?
-Oh shit I completely forgot about that. We're suppose to meet him at 8pm at the club.
-That just under an hour.
-Ya I need to get ready now.
-You both get ready to go out and meet Damien.
-So what are the plans for this evening?
-Let's just watch a movie and go to bed.
-Sounds good to me.
-Just before the end of the movie you notice that Anne has fallen asleep.
-You carry her to bed.
-So what do you think of my new dress?
-Holy shit balls baby! You look incredibly beautiful!
-Aww thanks babe!
-You just keep getting hotter and hotter each and every day.
-You are such a suck! Let's go!
-You looke just as hot from back here too!
-Thanks babe! But you always say that about my ass.
-You make your way to the club.
-He's at the bar!
-Hello stranger.
-Damn girl! You look hot!
-Thank you! You're looking pretty good yourself.
-Shall we grab a seat?
-Anne and Damien spend the next hour getting to know each other a little better and act as if you're not even there.
-So Damien, what do you think about taking this back to our apartment?
-Oh man, I would love to but I have a shoot very early tomorrow morning.
-That sucks, I was really hoping to bring you home tonight.
-Fuck do I ever wish I could. It's a very important client that I have in the morning and I really have to be on my A game.
-I understand!
-If it works with you guys, I could come over on Saturday night?
-Works for me!
-It's a date, Saturday at our apartment.
-I can't wait!
-Me neither.
-You all said your goodnights and you made your way home.
-I am so tired, I'm gonna call it a night.
-Ok baby! Guess I'll go to bed too.
-It's too bad Damien couldn't come over tonight.
-Ya, but I'm so tired that it's probably for the better that he comes saturday instead.
-Very true. Hope you have a good sleep baby! Goodnight!
-Goodnight babe! Love you!
-Good morning my handsome husband!
-Good morning beautiful! {p}Are you going to work today?
-Ya, I can't take two sick days in a row, Kenny would be so lost.
-Haha!
-You both get out of bed and get ready for work.
-Don't forget I have my company meeting tonight so I won't be home for dinner.
-Ya I know, I'm going out with Nicole for supper.
-You both finish your breakfasts and you head to work.
-You spend the morning working and decide to break for lunch.
-You both finish your breakfasts and you head to work.
-You spend the morning working and decide to break for lunch.
-You walk across the street to Shannon's house!
-*Nice house, but very little privacy.{p}There she is stretching in her room!*
-*I may just have to spend some time watching her one day.*
-You approach her front door, or what you hope is her front door and knock.
-*There she is! {p}Nicely toned stomach!*
-I'm so happy you decide to come!
-Of course! Why wouldn't I?
-Come in!
-*Hmm tiny butt, she needs to squat more!*
-So I've got lunch ready for us already. I know you don't have much time on your break.
-That's quite considerate of you but what if I hadn't come?
-Then I guess I would have thrown it away or just ate more as I pouted by my lonesome..
-It's a really nice house you have here. Not much privacy though.
-Ya I love it. My ex-husband bought it and I got it in the divorce.
-So you were previously married. WOW so he must have enjoyed showing you off then with all the windows in this place?
-At first yes he loved showing me off.{p}But the more that I was seen the more of a thrill it became for me and I could no longer control by desires to be watched by anyone.
-So you are a true exhibitionist then?
-Yes I am every bit an exhibitionist.
-Well how perfect is that, because I am a true voyeur.{p}Just on my way here I saw you in your bedroom stretching and told myself that I need to spend some time here watching you some time.
-I would love if you did, the thrilling part is not knowing someone is out there but thinking that there is and they are getting off watching me.
-Do you expose yourself only from home?
-No, I expose myself anywhere I might be when I get the urge to. {p}I suppose that what I do is the same as a man who gets an indecent exposure charge, but it feels less threatening somehow.
-Ya, you don't hear of women getting arrested for flashing or indecent exposure.
-You certainly don't.{p}People like to see naked women. It's true. Men and women like to see naked women. Especially when done tastefull like and accidental flash.
-An accidental flash?
-Yes, you accidentally on purpose flash a boob or as your shifting in your seat your legs part giving the voyeur across from you a flash of inner thigh or more.
-I get it. You know you're doing it but you make it look like it was accidentally.
-Exactly. But sometimes I want to see the look on their face once they see what they were hoping to catch a glimpse of and that is a thrill as well.
-So how come you haven't flashed me yet?
-Honestly? I can't answer that. I really don't know why I haven't. Especially at the diner when I saw Zarah flash you her ass.
-Oh so you saw that?
-Oh course I did! I was right beside you. Only an ignorant imbecile would have missed her beautiful ass!
-Yes it was very beautiful that's for sure.
-The conversation continues about her exhibitionism for the next 30 minutes.
-Oh shit! I think you're gonna be late getting back to work.
-Shit! Ya I should go.
-It was really nice talking with you and I'm sorry I was not able to make it worth your while as I had said I would.
-It was great getting to know you and I feel like it was still worth my while coming over. Thank you so much for lunch Shannon.
-You leave her house.
-Oh hey %(t)s.
-Next time will be even more fun.
-Shit those are very nice Shannon! Can't wait till next time.
-Me too.
-You head back to your office.
-You have your lunch at your desk!
-You finish your lunch and go back to work.
-You work for the rest of the afternoon with no interuptions.
-You finish work and leave the office.
-You arrive at Naomi and Zarah's apartment and knock on the door.
-WOW you actually came. I haven't seen you in so long.
-Of course I'm gonna come! I wouldn't miss this for the world.
-Give me a hug.
-You hug naomi and see Zarah sitting on the couch.
-I've missed you!
-I've missed you too. The diner just ain't the same without you.
-Invite him in Naomi!
-How rude of me... Come in!
-I missed that little butt of yours.
-I thought you might have, so I wore these shorts just for you.
-Well then, I must thank you!
-Are you checking out Naomi's ass?
-Yes but she told me she wore these just for me so I had to have look.
-I see! Well I wore these just for you too.
-Well those are quite nice too.
-The shorts or her little bubble butt?
-Both actually! I like both!
-You all enjoy good conversation for the next 30 minutes.
-I could use a glass of wine. Anyone else for a glass?
-Yes please! I'll come with you.
-And you %(t)s?
-*Hmmm should I? I'm suppose to be at a work meeting....*
-Why not, I'll have one glass please?
-Ok, we'll be right back.
-You watch them in the kitchen whispering to each other as the get the wine.
-We were wondering something.
-What's that?
-Since you got a good look at both of our butts earlier, we were wondering... which one you prefer?
-*Fuck! I really don't want to answer this...But I can have some fun with this..hmmm*
-Well if I'm gonna answer that, then I definitely need a better look.
-The girls put down their glasses of wine on the coffee table.
-This is exactly what we were hoping you'd say!
-Make sure you're getting a good look now!
-Ya, examine every inch to get the best judgement.
-*Naomi sure does have a great little butt. I've admired her ass since my first visit at the diner.*
-*On the other hand, Zarah also has a cute butt and she's my new diner girl now.*
-I really can't decide...You both have sexy little butts that I enjoy looking at.
-Let's do it!
-What if we do this?
-Oh shit! Yeah that may help!
-*Hmmm, cute ass and what a delicious looking pussy.*
-*Another great ass...I could definitely lose myself in that pussy too.*
-Ok %(t)s, it's time to make a choice.
-But what does it matter which of your asses I like more?
-It's just for fun! So which ass is it?
-Alright, if you must have a winner then I choose Naomi's butt.
-I knew you would. lol
-So this has been fun but it is getting late and I need to work in the morning.
-I'm pretty beat too. Thank for coming over %(t)s, we'll have to do this again soon!
-Alright ladies, I can take a hint. haha. I'll be leaving and yes I agree with you Naomi, we need to do this again soon.
-Have a great night, both of you. I know I will be dreaming of both of you.
-Haha, don't be to rough with us please.
-Maybe, just maybe, on your next visit that dream of yours may come true.
-Oh shit! I'll be over tomorrow night then. haha!
-Funny guy!
-Goodnight %(t)s.
-Goodnight.
-You make your way home!
-Alright, if you must have a winner then I choose Zarah's butt.
-I knew you would. lol
-So this has been fun but it is getting late and I need to work in the morning.
-I'm pretty beat too. Thank for coming over %(t)s, we'll have to do this again soon!
-Alright ladies, I can take a hint. haha. I'll be leaving and yes I agree with you Naomi, we need to do this again soon.
-Have a great night, both of you. I know I will be dreaming of both of you.
-Haha, don't be to rough with us please.
-Maybe, just maybe, on your next visit that dream of yours may come true.
-Oh shit! I'll be over tomorrow night then. haha!
-Funny guy!
-Goodnight %(t)s.
-Goodnight.
-You make your way home!
-Alright, if you must have a winner then I choose both of your butts.
-Hah, what a gentleman, he doesn't want to hurt or upset one of us.
-Chicken shit! haha!
-So this has been fun but it is getting late and I need to work in the morning.
-I'm pretty beat too. Thank for coming over %(t)s, we'll have to do this again soon!
-Alright ladies, I can take a hint. haha. I'll be leaving and yes I agree with you Naomi, we need to do this again soon.
-Have a great night, both of you. I know I will be dreaming of both of you.
-Haha, don't be to rough with us please.
-Maybe, just maybe, on your next visit that dream of yours may come true.
-Oh shit! I'll be over tomorrow night then. haha!
-Funny guy!
-Goodnight %(t)s.
-Goodnight.
-You make your way home!
-I really shouldn't and actually I should be getting home.
-Sorry to cut this night short but I really need to get home.
-No problem %(t)s, hope you can come back again soon.
-I will.
-You make your way home
-Meanwhile.....Anne and Nicole's evening.....
-I like this place a lot, I'm glad we came here.
-Ya me too it's got a good vibe.
-I'm not very hungry, I'm thinking of just ordering some wine. What do you think?
-I'm not really hungry either. Wine sounds like a fantastic idea to me.
-They spend the next hour having a couple glasses of wine.
-I really like these bracelets, they really go good with your sexy dress.
-Thanks Nicole. You look sexy tonight yourself.
-Do you remember college? The way you and I used to have fun after a night out at the clubs?
-I sure do, those were some pretty hot nights.
-How about we head back to your apartment and try to recreate those hot nights.
-Let's go!
-Wow, your new apartment is really nice.
-Thanks, I very happy we bought this place. So much nicer than our last place.
-Did Mike get you this place?
-Ya, he sold our last place too. He's great!
-I remember when he had the hots for you.
-Haha ya, he still does.
-Did you two ever fuck?
-Not back then but recently we did.
-For real? Isn't he married now?
-Ya he is. We had him over after buying this place to thank him and one thing led to another.
-Crazy! So %(t)s knows about it?
-Yes! Enough about Mike and %(t)s. Tonight is about Anne and Nicole's hot college nights.
-Yes it is and I'm coming for you!
-Come to me!
-Take the dress off!
-Ahhh I've always loved the way you kiss my neck like this..
-I want to devour you like I used to do.
-Oh fuck ya! I've missed this!
-You now get home!
-*Oh wow! Look at that!*
-What do we have here?
-Well hello handsome, Anne and I are reliving our hot college nights!
-Well don't let me stop you! Pretend I'm not even here.
-You don't want to join?
-Not this time.
-Yes lick my ass and my wet pussy! Feels so fucking good!
-OHHHH GODDDD SOOOO GGOOOODDDDD! OOOOH FUCKKKK!!!
-This I love! Rub my pussy with yours. I love your wetness on mine.
-I love our hot college nights. We need this more often.
-YESSSSSSSS Oh Fuck! YESSSSSS!
-I agree with you, we need a weekly fix of hot college nights.
-Thanks for coming out with me tonight Nicole, this was fun.
-So?? Was that hot enough for you?
-Fuck ya that was hot! Next time I'm definitely joining you both for some hot college fun.
-Ya that would be like our college nights, right Anne?
-Yes we did have a couple guys who enjoyed pleasing us.
-Alright I'll leave you two be. Have a good night!
-You too. Thanks again.
-My pleasure!
-Goodnight Nicole!
-I'm sorry but I'm extremely tired now and heading to bed for the night.
-Alright baby, I'm pretty beat myself.
-That view just never gets old.
-Yes pose for me baby! You are so sexy!
-I'm happy you still think so!
-Of course I do, that will never change.
-Have a good night babe! I love you!
-I love you too baby! Goodnight.
-While you were enjoying your time with Naomi and Zarah.....
-I like this place a lot, I'm glad we came here.
-Ya me too it's got a good vibe.
-I'm not very hungry, I'm thinking of just ordering some wine. What do you think?
-I'm not really hungry either. Wine sounds like a fantastic idea to me.
-They spend the next hour having a couple glasses of wine.
-I really like these bracelets, they really go good with your sexy dress.
-Thanks Nicole. You look sexy tonight yourself.
-Do you remember college? The way you and I used to have fun after a night out at the clubs?
-I sure do, those were some pretty hot nights.
-How about we head back to your apartment and try to recreate those hot nights.
-Let's go!
-Wow, your new apartment is really nice.
-Thanks, I very happy we bought this place. So much nicer than our last place.
-Did Mike get you this place?
-Ya, he sold our last place too. He's great!
-I remember when he had the hots for you.
-Haha ya, he still does.
-Did you two ever fuck?
-Not back then but recently we did.
-For real? Isn't he married now?
-Ya he is. We had him over after buying this place to thank him and one thing led to another.
-Crazy! So %(t)s knows about it?
-Yes! Enough about Mike and %(t)s. Tonight is about Anne and Nicole's hot college nights.
-Yes it is and I'm coming for you!
-Come to me!
-Take the dress off!
-Ahhh I've always loved the way you kiss my neck like this..
-I want to devour you like I used to do.
-Oh fuck ya! I've missed this!
-Yes lick my ass and my wet pussy! Feels so fucking good!
-OHHHH GODDDD SOOOO GGOOOODDDDD! OOOOH FUCKKKK!!!
-This I love! Rub my pussy with yours. I love your wetness on mine.
-I love our hot college nights. We need this more often.
-YESSSSSSSS Oh Fuck! YESSSSSS!
-I agree with you, we need a weekly fix of hot college nights.
-Thanks for coming out with me tonight Nicole, this was fun.
-I'll give you a call in the next couple days and we'll set something up for next week.
-Sounds good hun!
-Have a good night!
-You too. Thanks again.
-My pleasure!
-You get home 30 minutes after Nicole left.
-*Hmmm is she still out?*
-*Ah she's asleep already.*
-You wake up and see Anne already up and getting ready for work.
-Good morning!
-Good morning babe!
-I love your work outfit for today, Kenny will be pleased.{p}So glad it's Friday!
-Me too, even with my sick day, this week has felt very long.
-It sure has.
-Don’t forget, we have dinner plans tonight at my coworkers place.
-I know, I haven't forgotten.
-You get up and you both get ready for work.
-How have things been with Kenny since the business trip?
-Honestly, I’ve barely seen him. I don’t know if he’s avoiding me on purpose or he really is that busy but….ya…I’ve barely seen him.
-You’ve worked for him doing his chores and errands now for over two years, maybe it’s time to move on.
-What are you saying? I can’t just quit my job?
-Is it your job you’re afraid to quit or Kenny?
-The job of course.
-Baby, you could easily be a flight attendant or anyting you want to be. You're a smart girl and a damn sexy one too.
-Ok but that will only get me so far.
-As far as you want it to. Believe me.
-A flight attendant would be cool, I used to want to do that but life got in the way.
-You could get us cheap flights and vacations. haha. Time for me to go, think about it baby.
-I will, have a good day babe.
-You make your way to work.
-You work the morning away {p}then you the afternoon…{p}before you know it, it’s time to head home
-*Shit! Today flew by and I didn’t even have lunch.*
-You make your way home to your beautiful wife.
-Welcome home babe, I’m ready to go when you are.
-I see that, you seem eager to go?
-I'm just very hungry this evening.
-Ya me too, I skipped lunch today. Let's go then.
-Nice house.
-Ya, not sure what her husband does.
-Anne knocks on the door.
-Hi boss, welcome to my home.
-Thanks for having us Chloe.
-And you must be Anne. You are beautiful.
-Thank you, you are very beautiful too.
-Thanks, come in!
-Let me apologize now for Troy's behavior, he's watching a football game and he get's crazy and ignorant during them.
-No worries Chloe!
-Honey, our guests are here, this is my boss %(t)s and his wife Anne.
-Hey!
-See what I mean?
-It's all good, guys get into their games.
-Let's go to the kitchen so he doesn't start yelling at me.
-Does he yell at you often?
-Just when he needs something.
-Shit, why are you staying with him?
-There is some good too, it's not all bad.
-I really like that dress your wearing.
-Thanks, I just made this dress yesterday after work.
-What seriously?
-Ya, when you mentioned that you liked my top the other day it made me feel good because that was a top I designed and made as well.
-Have you made many items.
-Here follow me, I'll show you.
-I'll put on a couple of my favorite items I've recently made.
-I'll turn around while you change.
-You turn around and notice that you can see their reflection in the window.
-This dress I made for dinner with my parents a couple weeks back.
-You're talented, that's a beautiful dress.
-I love how light and flowy it is.
- I love the color too, it's really beatiful on you.
-This one is a one piece bathing suit I designed that I love so much!
-Doesn't leave much to the imagination but it sure is hot on you! I wish I had your talent and could create my own clothes.
-Thank you Anne, I'm sure you look sexy in swimwear too. I wish I had your body to wear the clothes I create
-Oh she sure does look good in bikinis! And you look great too Chloe.
-Thanks boss! You guys ready to eat?
-Definitely!
-Ok let's go eat!
-Dinner is ready hon!
-I'll grab a plate after the game.
-You're such an ass, we have company!
-The three of you enjoy a nice dinner and some good conversation with Chloe.
-Would you like to stay for some wine or do you have to leave?
-Welcome home babe, dinner is ready when you are.
-You're amazing!
-How was work?
-Work is work. I skipped lunch and worked through the whole day.
-Good thing I made you dinner.
-Yes thank you so much baby! How was your day?
-Today went by fast for me and you were right, Kenny took notice of my shorts, and grabbed my ass a few times today. {p}He's been really different since New York.
-Maybe his conscience is bothering him.
-Ya maybe! I'll try talking to him next week.{p}You good with watching a movie?
-Ya sure. Exciting Friday night at home with my wife.
-I'm sure we're ok to stay for a couple glasses of wine.
-Oh cool, I was hoping you would.
-If you'll excuse me for a moment, I just need to use the restroom.
-Thank you very much for having us over, my wife really seems to like you.
-Ya I think we're hitting it off, she's really nice and really pretty.
-Yes she is, and so are you!
-Thanks, I saw you watching me change in the reflection of the window. Hope you liked what you saw.
-I did, very much. And would love to see that again.
-I thought you might.
-Should I tell your wife you were being naughty and watching me change?
-Haha, please don't.
-Guess I kinda have you by the balls now don't I?
-Just don't squeeze to hard please.
-What are you talking about?
-Just about her passion for clothes making.
-Ya I'm kinda jealous of that.
-I could show you how if you'd like to learn?
-Sure, that would be so kind of you. I'd love to learn
-Games over! What are you guys up to?
-Oh how nice of you to join us! And don't you think you should put a shirt on?
-And hide all this? {p}Actually I'm going to bed! It was good meeting you Anne.
-Guess he liked you more than me baby!
-Haha, He's an asshole don't mind him.
-Why do you stay with him?
-To be honest, it's his money and his skills in the sac are what keep me here.
-Why do you still work if he has lots of money?
-I'd go crazy if I didn't and that's how I met you and now your wife.
-You spend the next hour drinking wine and getting to know Chloe a little better.
-It's probably time we make our way home baby!
-Yeah, you're right.
-Thanks for having us over, I had a really good time and can't wait to get together with you again.
-Yes thank you very much Chloe!
-I'm glad you both enjoyed yourself and again I'm sorry for how Troy acted.
-No worries. Boys will be boys sometimes.
-You make your way home and decide to watch a movie for the remainder of the evening.
-Have you given any thought to our conversation this morning?
-I have but I'm still not sure what to do.
-I would be away all the time if I was a flight attendant.
-That's true but you love to travel and would get to travel for work and cheap.
-Yes but I love to travel with you.
-Can you imagine the fun I could have and the stories I would have for you?
-Oh my god baby! I didn't even think of that! You have to do it.
-Haha. I'll think about it some more.
-Ok, I hope you do it.
-What happened to your panties? I know you had on the matching ones to the bra you have on.
-Your co-workers husband has them. I forget his name.
-What the fuck? Troy? How?
-When I went to the washroom he barged in and demanded I give him my panties.
-And you just gave them to him, did he threaten you?
-No threats, I didn't want to cause a scene so yes I gave them to him.
-Hmmm..... {p}Thats kinda hot baby, you being submissive like that!
-I thought you were mad.
-Fuck no I'm not mad, just shocked! Did you do anything else.
-No once he had my panties he left the washroom.
-What a strange fella! Hmmm maybe there's more to come.
-I'm going to bed, I'm tired.
-I'm gonna jump in the shower quickly then come to bed.
-Ok babe! See you soon.
-You quickly shower then join Anne in the bedroom.
-*Oh my god! Seriously? Fuck!*
-*Fuck! I so badly wanted to fuck tonight.*
-You get over the fact that you didn't get laid and eventually fall asleep.
-I'm going to bed, I'm tired.
-I'm gonna jump in the shower quickly then come to bed.
-Ok babe! See you soon.
-You quickly shower then join Anne in the bedroom.
-*Oh my god! Seriously? Fuck!*
-*Fuck! I so badly wanted to fuck tonight.*
-You get over the fact that you didn't get laid and eventually fall asleep.
-Good morning!
-Good morning beautiful! {p}I’m gonna go shower then make us breakfast.
-Don’t worry about breakfast, I’ll get it while you’re showering.
-Thanks baby!
-Do you maybe feel like going to the beach today?
-Ya sure we can do that. Sounds fun!
-You finish your breakfasts.
-Let’s get changed and head down before all the good spots are gone.
-Should I wear a thong?
-Sure why not? It is a clothing optional beach after all so the less you wear the better.
-Haha, very true.
-I’m ready, let’s go!
-You make you way to the beach.
-Nice! We're early enough to get a good spot.
-You spend an hour enjoying the sun and your gorgeous wife’s company.
-Do you want to get naked?
-If you’re ok with it then I will.
-I don’t think there’s anyone here that we know, so ya let’s do it.
-This feels good.
-Damn baby! You look yummy.
-Feels so good to have the sun on my naked body.
-Your naked body looks incredible with the sun beating on it.
-*Holy fuck! I think that's Mike...*
-*Yep that's Mike {p}His wife is hot!*
-Well! Fancy seeing you two here.
-How's it going?
-Oh Hey Mike!
-I'm good! This is my lovely wife Holly.
-Nice to meet you Holly!
-Good to meet you too.
-Do you mind if we join you?
-Not at all!
-Do you two come here often?
-We’ve come a few times but it’s our first time with no clothes on, and you two?
-We used to come here a lot early in our relationship but not so often the last couple years. Today is the first time in probably a year.
-It’s not that we haven’t wanted to, our careers have just limited us.
-What is it you do Holly?
-I’m also in real estate. I work for a different firm than Mike.
-You two should be a team and start you own firm.
-That’s the plan. Hope that in the next couple of years we can make that reality.
-I need to go use the ladies room.
-Me too actually... the men’s room I mean.
-Ya right, you meant the ladies room, you perv!
-Anne and Mike have left for the restrooms leaving you alone with Holly.
-Do you think they’re fucking right now?
-What? No! Of course not!
-Ya right! I bet they are! I know they’ve fucked before and I know Mike still is very attracted to Anne. {p}It’s not like I don’t have my side guys too.
-What the fuck? Are you serious? Does mike know?
-Fuck no! He’s to ignorant to see it. Besides what he doesn’t know won’t hurt him. He’s a hypocrite like most men, it’s ok for him to do it but how dare I?
-I get it! Anne and I are very open with our sexuality and to tell you the truth I enjoy her fucking other men.
-You’re a dream guy for a lot of women. Anne get's her cake and she gets to eat it too, as the saying goes.
-How was your visit to the men’s room?
-Long line, guess everyone had to go at the same time. I went behind the bushes!
-Yeah, the line up was crazy.
-Why is it that their is always a line up in the ladies washrooms?
-We just piss in a trough. haha much quicker and no closed doors.
-Groce!
-You all spend the afternoon enjoying the sun and each other’s company.
-I’m getting hungry, we should head home baby and have dinner before Damien shows up.
-Oh right! Good idea babe.
-Hope you both have a wonderful evening!
-It was very nice meeting you both.
-You too Holly, and take care Mike!
-Did you fuck him when you went pee?
-I’m getting hungry, why don’t we pack up here and all head back to our apartment and have some dinner and drinks?
-Now that sounds like an offer we can’t refuse, right hun?
-Yes that’s a wonderful idea!
-What a sight for sore eyes!
-A true work of art!
-You all make your way to the apartment!
-Very nice! I love the layout in here, nice and open.
-We love it, Mike did a great job finding exactly what we wanted.
-Mike”s good a pleasing the clients he likes.
-Make yourselves at home and I'll go start on dinner.
-And I'll go get changed.
-You begin prepping dinner.
-Do you think Holly knows something happened between Mike and I?
-Oh she knows alright, she thought you two were fucking at the beach today.
-Seriously? Nothing happened at the beach except for him grabbing my ass a couple times, that’s it.
-Don’t get all worked up, she doesn’t care, she says as she has her fuck boys too.
-Wow, you two really had a deep conversation while Mike and I were away.
-Haha, ya she’s pretty open!
-I'll go join them.
-Alright everyone, dinner is served!
-%(t)s, you are quite the chef! This looks amazing.
-Thanks Holly. I enjoy being in the kitchen, I find it freeing and satisfying when something I’ve created tastes good.
-I’m very spoiled, it’s incredibly rare that his food doesn’t taste good!
-I burn water! Keep me out of the kitchen.
-Literally stays out of the kitchen, doesn’t even touch the dishes.
-Oh common, I'll load the dishwasher when you ask me to.
-When I ask him to....
-Wine? Anyone for wine?
-Yes please, bring me the whole bottle haha!
-Ok, so non-alcoohlic wine for Holly!
-Very funny!
-You get a bottle and 4 glasses.
-This is delicious babe!
-It' sure is, thank you %(t)s!
-It’s nothing guys, I’m glad you all are enjoying it.
-You all finish your dinners and enjoy a few more glasses of wine and conversation.
-I am so stuffed!
-Haha, me too!
-Just going to the bathroom.
-At the beach you said that you and Anne are very open with your sexuality, I was wondering have you two ever been to a swingers club?
-No we haven’t, actually we haven’t even talked about it.
-Might be something to look into, might be fun. Have you and Mike?
-No, but it’s something I’ve thought about for a while now. I don’t think Mike would be interested.
-Interested in what?
-Going to a swingers club!
-Tonight
-No, no! Just a general thought. Is that something you’d be interested in doing with me?
-Something to think about. You do know what goes on in there right?
-Of course Mike I know! Jeeez!
-How about the four of us discuss it some more over the next week and if all goes well we’ll all go next weekend?
-Now that sounds like a fair plan.
-I agree. And I also think it’s time we make our way home sweetie.
-Ok dear! Let’s go home. Thanks for a wonderful afternoon and evening you two.
-Mike and Holly leave for home and you and Anne retire to bed.
-A swingers club? I’m in.
-Haha I knew you would be.
-Have a good night babe, love you!
-Love you too, good night!
-No! Of course not!
-Holly thought you two were fucking and she knows about the poker night.
-What the fuck! Really?
-Yep and she's also fucking some guys on the side.
-Wow, you sure got a lot of information out of her.
-She just came out and blurted this stuff to me.
-Hmmm, maybe I should have fucked him when he tried. haha!
-I figured he might have.
-You make your way home.
-I'll go get changed if you want to get a quick dinner ready?
-Sure thing baby!
-You're wearing a robe? I thought you would have had a on a dress?
-Nah! He's coming here for one thing and one thing only so a robe and stockings should be good enough for him.
-You look hot no matter what.
-He texted me while I was getting changed saying he was on his way.
-So he should be soon then.
-Ya.
-You finish your dinners and move to the living room.
-As Anne sits down there's a knock at the door
-Well hello there handsome!
-Hello beautiful!
-I hope you approve of what I chose to wear for you?
-Fuck ya! But I think I need to see a little more to be sure!
-Wow! Fucking rights I approve. This ass is to die for!
-I'm taking Damien to the bedroom, are you coming to watching me fuck him?
-You bet I am!
-Don't drop me!
-I would never do that!
-Now you can drop me and please fall on top of me!
-Get those pants off, I want to suck your cock!!
-Damn girl!
-Shit girl! I need to fuck you now! Climb up on me!
-Oh yes, your big cock feels so fucking good inside me.
-Oh fuck girl! Ride my cock!
-Yes fuck me! Oh fuck me Damien! {p}I'm gonna cum! Oh Yes I'm gonna cummm!
-OOOHHHH FUCCCKKKKK YESSSSSS OHHH FUCKKK FUKCKKK!!!!
-I want to see you ass up high! Roll over!
-That's what I'm talking about! Fuck this pussy! Fuck this pussy!
-Yes Damien fuck my pussy! Fuck my pussy hard!
-Oh shit girl I'm gonnna cum!
-Cum all over my ass Damien! Cum for me Damien
-That was amazing!
-Love every minute girl! I hope we can do this again soon.
-You can coun't on it.
-Give me a call or text me next time you need me to come over.
-I will for sure. Have a good night Damien.
-You too Anne!
-Damien leaves and you join Anne on the bed.
-How was that babe!
-It was alright. He didn't last as long as Dre but how was it for you.
-No Dre that's for sure but he was still fun.
-Well have a goodnight babe! I love you.
-Love you too baby. Night!
-We might have played a little!
-So Holly was right!
-What?
-She said you two were fucking and that she knows about the poker night!
-What the fuck! Really?
-Yep and she's also fucking some guys on the side.
-You make your way home.
-I'll go get changed if you want to get a quick dinner ready?
-Sure thing baby!
-You're wearing a robe? I thought you would have had a on a dress?
-Nah! He's coming here for one thing and one thing only so a robe and stockings should be good enough for him.
-You look hot no matter what.
-He texted me while I was getting changed saying he was on his way.
-So he should be soon then.
-Ya.
-You finish your dinners and move to the living room.
-As Anne sits down there's a knock at the door
-Well hello there handsome!
-Hello beautiful!
-I hope you approve of what I chose to wear for you?
-Fuck ya! But I think I need to see a little more to be sure!
-Wow! Fucking rights I approve. This ass is to die for!
-I'm taking Damien to the bedroom, are you coming to watching me fuck him?
-You bet I am!
-Don't drop me!
-I would never do that!
-Now you can drop me and please fall on top of me!
-Get those pants off, I want to suck your cock!!
-Damn girl!
-Shit girl! I need to fuck you now! Climb up on me!
-Oh yes, your big cock feels so fucking good inside me.
-Oh fuck girl! Ride my cock!
-Yes fuck me! Oh fuck me Damien! {p}I'm gonna cum! Oh Yes I'm gonna cummm!
-OOOHHHH FUCCCKKKKK YESSSSSS OHHH FUCKKK FUKCKKK!!!!
-I want to see you ass up high! Roll over!
-That's what I'm talking about! Fuck this pussy! Fuck this pussy!
-Yes Damien fuck my pussy! Fuck my pussy hard!
-Oh shit girl I'm gonnna cum!
-Cum all over my ass Damien! Cum for me Damien
-That was amazing!
-Love every minute girl! I hope we can do this again soon.
-You can coun't on it.
-Give me a call or text me next time you need me to come over.
-I will for sure. Have a good night Damien.
-You too Anne!
-Damien leaves and you join Anne on the bed.
-How was that babe!
-It was alright. He didn't last as long as Dre but how was it for you.
-No Dre that's for sure but he was still fun.
-And how about compared to Mike earlier?
-Mike was a lot of fun and it was a thrill being outside with you and Holly nearby!
-You close your eyes as Anne describes her encounter with Mike!
-We casualy walked to where the row of toilets were!
-There was a line up!
-People kept staring as us being the only ones naked there!
-I asked Mike if he'd mind going behind the bushes, as I just couldn't wait any longer!
-Mike agreed!
-Such relief and it was kinda thrilling to pee right there behind the bush!
-When we were done Mike grabbed me and began kissing me!
-He kept holding me and telling me how much he loved our poker night!
-I told him that I enjoyed too and couldn't wait to do it again!
-He told me that this was a great time and he wanted me now!
-I dropped to my knees and his cock was already rock hard and standing at attention!
-I Stroke his hard cock a little bit!
-I took his cock in my mouth and sucked on until he was begging to fuck me!
-Let me fuck you he said! I want to fuck you so hard!
-I stuck my ass up in the air like you like it and he go in behind me!
-It felt so good having him inside me again babe!
-I flipped on to my back and he continued pounding his hard cock into me
-Fucking me so good! I didn't care who heard me or was watching at that point!
-He told me he was about to blow and wanted to cum on my face!
-I knelt before him and sucked his cock!
-He filled my mouth up!
-And covered my face with his hot cum!
-And that's it!
-Sounds like you really enjoy fucking with Mike?
-Yeah I do! He's fun and now goodnight babe! I love you.
-Love you too baby. Night!
-No! Of course not!
-Holly thought you two were fucking and she knows about the poker night.
-What the fuck! Really?
-Yep and she's also fucking some guys on the side.
-Wow, you sure got a lot of information out of her.
-She just came out and blurted this stuff to me.
-Hmmm, maybe I should have fucked him when he tried. haha!
-I figured he might have.
-You make your way home.
-I'll go get changed if you want to get a quick dinner ready?
-Sure thing baby!
-You're wearing a robe? I thought you would have had a on a dress?
-Nah! He's coming here for one thing and one thing only so a robe and stockings should be good enough for him.
-You look hot no matter what.
-He texted me while I was getting changed saying he was on his way.
-So he should be soon then.
-Ya.
-You finish your dinners and move to the living room.
-As Anne sits down there's a knock at the door
-Well hello there handsome!
-Hello beautiful!
-I hope you approve of what I chose to wear for you?
-Fuck ya! But I think I need to see a little more to be sure!
-Wow! Fucking rights I approve. This ass is to die for!
-I'm taking Damien to the bedroom, are you coming to watching me fuck him?
-You bet I am!
-Don't drop me!
-I would never do that!
-Now you can drop me and please fall on top of me!
-Get those pants off, I want to suck your cock!!
-Damn girl!
-Shit girl! I need to fuck you now! Climb up on me!
-Oh yes, your big cock feels so fucking good inside me.
-Oh fuck girl! Ride my cock!
-Yes fuck me! Oh fuck me Damien! {p}I'm gonna cum! Oh Yes I'm gonna cummm!
-OOOHHHH FUCCCKKKKK YESSSSSS OHHH FUCKKK FUKCKKK!!!!
-I want to see you ass up high! Roll over!
-That's what I'm talking about! Fuck this pussy! Fuck this pussy!
-Yes Damien fuck my pussy! Fuck my pussy hard!
-Oh shit girl I'm gonnna cum!
-Cum all over my ass Damien! Cum for me Damien
-That was amazing!
-Love every minute girl! I hope we can do this again soon.
-You can coun't on it.
-Give me a call or text me next time you need me to come over.
-I will for sure. Have a good night Damien.
-You too Anne!
-Damien leaves and you join Anne on the bed.
-How was that babe!
-It was alright. He didn't last as long as Dre but how was it for you.
-No Dre that's for sure but he was still fun.
-Well have a goodnight babe! I love you.
-Love you too baby. Night!
-I don’t know about the whole swingers club thing. I’ll have to give it some thought.
-No pressure baby! Take your time.
-There May be some big black cocks waiting for you there to play with.
-Haha, it’s seeing you with other girls I’m unsure about.
-Goodnight babe! I love you.
-Love you too baby, goodnight.
-You wake up alone!
-*Anne’s up already?*
-*Where is she?*
-*Oh, she left a note!*
-Gone for a run! XOXOXO
-*When did she start running? Weird!*
-*What a beautiful morning, I should make this running thing a regular daily activity.*
-*I think that's Phil coming this way.*
+*Wonder if she's out for another run?*
+*The note is still there from yesterday but it looks like she's out again.*
+Joining Anne at the park!
+*There's Phil!*
 Good morning Phil!
-Oh! Good morning gorgeous, do you always stretch out here?
-No I just finished a run, this is actually my first time here. I woke up early this morning and felt like coming out.
-I’m here every morning, not running but walking. This old body can’t run anymore.
-Haha, you’re funny Phil. You’re not that old.
-Oh common Anne, who we kidding here?
-Do you mind if I walk with you then?
-How could I refuse a beautiful girl wanting to walk with me?
-Look at you with all the flattery and compliments this morning. Can I ask you a personal question?
-Please do, the more personal the better.
-I was just wondering about Donny’s mother?
-Not the kind of personal I was hoping for but I’ll answer. Donny’s mother and I were married for 10 years before Donny was born and she passed away from complications giving birth to him.
-Oh my god! That’s so tragic.
-Yes it is, I resented Donny for many years but eventually accepted that he was my gift from her.{p}Donny never got to meet his wonderful mom, but I’ve told him many stories.
-I feel so bad now for asking that question.
-No please don’t! It’s nice being able to open up about it. Besides Donny I haven’t really had anyone else in my life to have these conversations with.
-Have you not dated or been with another woman?
-No, Donny was my life and my priority and now? Well I’m just an old fart.
-So, ummm no sex either?
-Nope! I’ve forgotten what a woman feels like.
-Oh my god! You poor man! I couldn’t imagine. I will help you!
-You will! What do you mean?
-I will help find you a woman.
-Oh I see, I thought there that you were volunteering to be that woman.
-Me? Let me see what I can do with finding someone.{p}But I'm gonna head in now Phil, I'm sure %(t)s is wondering where I am.
-Alright gorgeous, thanks for keeping an old man company and making this one of the best days I’ve had in a very long time.
-My pleasure phil!
-Anne kisses Phil on the cheek!
-*Could be fun with Phil....Something to conside... What am I thinking...He's so old.....still.... could be fun!*
-Back at the apartment Anne is getting home.
-Good morning baby! When did you start running?
-I woke up early and saw a beautiful sunrise and for some reason had the urge to run, so out for a run I went. {p}Now I need a shower.
-You head to the living room where Anne joins you after her shower!
-Much better! I feel refreshed! {p}Any plans for today?
-Nah, I’m not feeling too shit hot so just a lazy day!
-You know what? That sounds like a plan to me also. Lazy day with my hubby.
-You both kick back in the living watching non-sense Sunday tv shows.
-Before you know it it’s dinner time.
-You prepare dinner!
-Oh! I forgot to tell you I ran in to Phil this morning on my run.
-Who’s Phil?
-Our neighbor!{p}Anyways we got talking about him and Donny’s mother who died when Donny was born and that he hasn’t been with anyone since.
-Shit! Poor guy!
-That’s what I said too and volunteered to help him?
-Seriously? Your gonna fuck our old neighbor?
-That’s what he thought I meant too and he got really excited, but no, I want to help find someone for him.
-I see, I still think you should do it.
-Seriously?
-Yep, you would probably give him a heart attack though!
-Haha, well then there's a good reason not to.
-Do you feel like watching a movie?
-Yeah sure!
-So I thought about what you had suggested the other day about finding another job.
-And, what did you come up with?
-I applied with two airlines online and one has emailed me asking that I come for an interview tomorrow afternoon.
-Cool baby! That’s amazing, I'm so excited for you.
-I’m not sure yet what I’ll do if they accept me. Guess it will come down to money.
-Well I hope all goes well for you baby! What ever decision makes you happy then I'm happy!
-Thanks babe! Not sure how Kenny will react to this if I quit!
-He'll get over it.
-*Fuck she makes it hard to concentrate on shit!*
-Bedtime?
-Definitely! I'm tired!
+Good morning darling, you sure are looking good this morning.
+Thank you Phil, you sure are a charmer.
+I try!{p}So would you like to walk with me this morning?
+Sure, why not! I have a few minutes left before having to leave for work.
+How about today I ask you about you?
+Sure what would you like to know?
+Everything, I want to know everything about you Anne!
+Ok Phil! Where do I begin.{p}My parents divorced when I was 6 years old and I haven't seen my father since then.{p}My mom re-married a year later which brought Eric, my step brother into my life.
+His dad passed away a couple years later to cancer.{p}It was really hard on us for a few years but my mom worked hard to give Eric and I the best life she could afford to.
+Have you ever tried to find or get in touch with your dad?
+To be honest with you, for most of my life I didn't think of him at all but lately I've been wanting to find him and talk to him about why he left us. I'm sure there's a good reason!
+Maybe that would be good for you to find him. Could give you closure on that part of your life or start a new relationship with the father you haven't had.
+I really have no idea where to start looking. I don't even know if he's still in the country.
+I have a friend who's a retired investigator. Let me see if he can help.
+Thank you Phil!
+My pleasure hun!
+Do you see your mom and step brother often?
+Eric was just here a couple weeks ago and I try to visit them a few times a year.
+That's good! So is your mom seeing anyone now?
+Haha no she's not. Maybe I should introduce you to her.
+If she looks anything like her daughter I wouldd love to meet her.
+She lives a couple hours away, I'll try to get her here for the weekend.{p}Thanks for the walk and talk but I need to get back for work.
+Have a great day Anne! Always a pleasure walking with you.
+Anne leans in to give Phil a hug and Phil turns his head quickly planting a kiss right on her lips.
+Anne attempts to pull away but Phil holds her to him.
+I will definitely have a great day now.
+Bye Phil!
+How was your run?
+Good, I wish I had started this a long time ago! It makes me feel alive!
+Proud of you for doing it baby!
+Thanks babe! You leaving for work now?
+Yep! See you tonight.
+Have a great day babe!
+You too, and good luck with your interview!
+You make you way to work.
+You hear a knock at the door and Chloe ask if she can come in.
+Come in Chloe!
+Good morning boss!
+Good morning Chloe!
+I just wanted to apologize for my husband's behaviour the other night.
+No problem Chloe, we still very much enjoyed visiting you.
+Thanks, I’m glad you did!
+Is that a new dress?
+It is! Just designed it and sewed it over the weekend.
+Well it looks beautiful on you, you have a real talent Chloe!
+Thanks boss! I was going to go a little lower on the back but didn’t think it would be appropriate for work.
+Like the dress you wore Friday night?
+Yeah!
+I liked that but you’re maybe right; not for work.
+What is it that you liked about it?
+Haha! Loaded question.{p}Speaking of the dress, it’s the tease. It covered all the delicious bits, but left enough exposed to tease and get the imagination going.
+So you think my bits look delicious!
+*Fuck she caught that!*
+Of course Chloe, have you not seen yourself? You are a beautiful, sexy and very talented woman. Any man would find you delicious!
+Maybe one day, I'll let you taste, but for now I should get back to work.
+Alright Chloe! Have fun!
+*Fuck!!! I can't wait to taste that!*
+You hear a knock at the door and Tiffany asks if she can come in.
+Come in Tiffany!
+Good morning!
+Good morning Tiffany, what can I do for you?
+I just wanted to thank you again for giving me this week off for vacation.
+You’re very welcome Tiffany, but what are you doing here?
+Our flight is not until 9 tonight and I’m all packed so I figured I’d come in today.
+Well I appreciate that but you didn’t have to.
+I know but I wanted to thank you one more time.
+Is that a new dress for your trip? It fits you really well.
+It is and thank you, I like it a lot.{p}And you know me, I enjoy showing some cleavage and this dress does that well without the wardrobe malfunctions I was having with my shirts.
+Haha. But I liked those shirts too.
+Don’t worry, I’ll still wear them.
+That makes me happy.
+Good to know. Haha!
+On that note, I’ll head back to my desk.
+Have fun Tiffany.
+Well then you are welcome one more time!
+Ok I’ll get back to my desk.
+Have fun Tiffany.
+You continue to work until lunch!
+*What should I do for lunch today?*
+You sit at your desk and enjoy your lunch.
+You go back to work once your lunch is finished.
+You hear a knock at your door.
+Come in!
+Sorry to disturb you again but I just got back from the diner and I thought, why don't we get uniforms?
+Really? You want uniforms for work?
+Ya I think it would be fun.
+I don't think the team would go for that.
+I think they would. Please boss?
+Alright, I'm leaving this in your hands. If you can convince the team then by all means!
+Thank you!
+No problem Tiffany!
+You enter your apartment and your mind runs wild thinking that Anne could have been there with one of her lovers!
+You don't believe that Anne would cheat on you but part of you is beginning to feel that maybe she could.
+Part of you is relieved not too see Anne home and part of you wishes you had walked in on her in a compromised position!
+You decide to then go to the diner for lunch.
+As you enter the diner you see Tiffany there having lunch by herself and Zarah looking happy to see you.
+Do you mind if I join you?
+Oh hey %(t)s! No not at all, please do!
+Thanks, do you come here alot?
+It’s my first time, you?
+I’ve come a few times. I like the burgers here.
+And the waitress uniforms, I bet!
+I’ve come once or twice. I like the burgers here.
+And the waitress uniforms, I bet!
+My first time here too. I heard they have really good burgers.
+Looks like you like the uniforms too?
+Well….they do add a little extra spice to the whole experience.
+Why don't we get a uniform for work?
+Seriously? I don’t think the team would approve.
+I think I could convince them.
+Alright then, I’ll leave it in your hands. Chloe could design them, she's a seamstress you know?
+Of course I know, she made this dress for me.
+Should have known that was her work.
+What do you mean by that?
+The sexiness of it and the teasing aspects of it screams of Chloe's work.
+Haha Yeah! I guess it does!
+You have lunch with Tiffany then both head back to the office.
+So how is my favorite waitress today?
+I'm good and even better now that my favorite customer is here.
+Good, I'm glad I'm able to brighten your day.
+So when are you coming over next?
+When would you like me to come over?
+How about this Friday and I can show you more of this!
+Holy shit Zarah, you're not wearing any panties?
+Nope! Nothing at all underneath!
+*Fuck that's a nice pussy!*
+WOW Zarah, I see Naomi is rubbing off on you!
+Maybe a little, she does know how to have fun!
+I love watching you two have fun! haha
+And we enjoy you watching us!
+You have your lunch then walk back to the office with Tiffany!
+What do you think about us getting uniforms?
+I don't think it would go over well, why do you ask?
+I liked the uniforms at the diner and thought maybe it would be fun if we had uniforms too.
+Not sure that everyone would agree with you but I'm up to the idea.
+Leave it to me, I'll get everyone on board.
+Ok Tiffany! This is in your hands.
+Did you go for lunch together?
+No we just ran into each other.
+What do you think about getting a uniform for work?
+That'd be cool, can I help design it?
+That's exactly what we were hoping you would do.
+Ya I'm definitely in!
+I'm in too, I think it's a great idea.
+Ok convince everyone and once you have some designs come show me.
+Will do!
+After lunch you get back to work at your desk.
+2 hours go by then another knock at the door.
+Come in!
+Holy shit Gary! You shaved your beard, I barely recognize you!
+Ya I needed a change!{p}Listen %(t)s, , I’m hearing rumbles that you want to get uniforms for the staff. Is this true?
+News sure travels fast around here. It was Tiffany’s idea, she saw the uniforms at the diner and liked them and thought it would be fun to have uniforms here too.
+I love the idea! Especially if the uniforms are like the diners.
+Haha, I don’t think they will be as revealing but we’ll see if it happens, Chloe and Tiffany are designing them.
+Keep me posted please.
+I will.
+Almost forgot. My wife Carol and I are having a little get together at the pool house this weekend, would love for you and your wife to come?
+Sure I’ll run it by Anne. I’m sure she’ll be cool with it.
+Very good then!
+Gary leaves your office and your return to work.
+You go back to work until quitting time.
+You leave the office and make your way home.
+You get home and don’t see Anne.
+You hear her voice coming from the bedroom.
+*Hmmm, I don't hear another voice, who's she talking to?*
+*Ahhh! She's on the phone!*
+Love you too, bye!
+That was mom, she may come down this weekend.
+Oh cool! Haven't seen your mom since our wedding!
+She doesn't leave her little town very much.
+I'll go make dinner!
+Thanks baby!
+So tell me the news, how was your interview today?
+It went really well and I hope to hear from them in the next couple of days.
+Was the recruiter some old perverted guy checking you out through the entire interview?
+Haha! No it was an attractive woman actually!
+Oh I see, so you were the perverted one checking her out?
+Maybe, maybe not!
+Gary, my boss has invited us to a get together at their pool house this weekend. Are you interested in going?
+Sure, why not! Will be fun to meet your boss!
+Ok, I'll get more details tomorrow at work.
+After dinner you move to the living room.
+You both relax and watch tv.
+Anne’s phone beeps, notifying her of a text message.
+Who’s that?
+Just Kenny with a list of errands for tomorrow.
+Fun!
+What really happened from Anne’s point of view
+Anne’s phone beeps notifying her of a text.
+*A text from Martin? That's weird!*
+Meet me for coffee tomorrow noon at the coffee shop?
+Who's that?
+*Shit! Think quick!*
+Just Kenny with a list of errands for tomorrow.
+Fun!
+I'll be there!
+You watch tv together for the remainder of the evening.
+I'm tired! It's bedtime for this girl.
+Alright baby! I'm coming too.
+You both head to bed!
 Goodnight babe!
 Goodnight beautiful!
-Let him look
-Tell him to go in.
-Stop him!
-Get mad and tell him to get out!
-Allow him to use the toilet.
-Be flirty and tease him.
-Masturbate for Martin
-Invite Martin in the shower.
-Let Martin finish up and leave.
-Intervene!
-Watch Anne with your Dad!
-Stay and watch your dad with Anne.
-Leave and go to work.
-Continue watching your wife about to fuck your dad!
-You can't watch anymore, leave and go to work.
-Tell her!
-Don't say nothing!
-Go to the diner!
-Go home!
-No lunch!
-Nah! I'm good thanks!
-Olivia!
-Tiffany!
-Chloe!
-Take a closer look.
-Let her know about the button.
-Watch a movie
-Cum on her tits
-Yes of course
-I've changed my mind
-Watch them!
-Agree to dinner!
-Decline dinner.
-Just take a quick look.
-Fuck Olivia!
-Just a coffee.
-Tell Anne about fucking Olivia!
-Don't tell Anne about Olivia!
-Comment on the outfit
-Just have dinner
-Meet up with Damien
-Meet the swinger neighbors
-Watch tv!
-Visit Donny and Phil
-Accept the invitation.
-Decline the invitaion.
-Let Anne answer
-Not tonight
-Sounds fun!
-Just watch!
-Have fun with Vicky!
-Kiss her!
-No thanks!
-Tell her to stay.
-You prefer she come home.
-Eat in your office.
-I'll be there.
-I need to get back to work.
-Would you suck my cock?
-Can I fuck you?
-Go to Shannon's for lunch
-Have a glass!
-Better not!
-I'm gonna need a better look.
-Naomi's
-Zarah's
-Both
-Skip Anne's dinner with Nicole
-Stay and have wine.
+*She must be out running again.*
+You have a quick morning shower.
+Good morning!
+Good morning! Not going for a run this morning?
+I did already! I woke up at 5:30, got my ass out of bed and went for a run!
+You're dedicated! Must have been quiet out there at that time!
+It was, not a soul in sight. Only saw one other woman walking her dog when I was on my way back to the apartment.
+What was that for?
+Can't a man kiss his wife before leaving for work?
+Of course he can, kiss me again.
+Hope you have a great day baby!
+You too babe!
+You make your way to your office!
+As you walk in you run into Chloe who looks like she has something to tell you.
+Good morning Chloe, you look like you have something to tell me.
+Tiffany called me last night before her flight and said she had convinced everyone about the uniform and that if you approved I could start designing.
+Of course you have my approval. If everyone agrees then go for it.
+Sweet! I can't wait to start working on it and showing you what I come up with.
+Sounds good Chloe!
+*Cute little ass!*
+You work through the morning until lunch.
+You sit at your desk and enjoy your lunch.
+You make your way home for lunch!
+You quickly make up some hotdogs for your lunch.
+You make your way back to your office.
+While you were having your lunch
+Anne arrives at the coffee shop to meet up with Martin.
+Anne takes a seat and waits for Martin's arrival.
+Martin enters the coffee shop and sees Anne smiling beautifully!
+Well hello there beautiful! So glad you could meet up with me.
+What brings you back into town?
+Let me grab us a couple coffees and I'll be right back!
+I'm in town on business again!
+Of course!
+My assistant was scheduled to come for this meeting but I decided to take his spot and come visit you! I missed you!
+Aww you're so sweet Martin! I missed you too.
+Me or my friend down below.
+Haha! Both of you!
+My hotel is just around the corner if you want to get re-aquainted with my friend.
+Let's go!
+Anne and Martin head up to his hotel room.
+Welcome to my home for the next two days.
+I see you were prepared for me to come, nice heart on the bed.
+The house cleaner did that, when I got in last night I had two swans on the bed.
+So what are you wanting to do in this room.
+Uh huh! Oh I like where this is going!
+Martin removes her skirt and begins playing with Anne's pussy!
+Oh fuck! Martin! Oh Martin! That feels sooooo goood!
+Martin removes his clothes and pulls Anne to sit on his face.
+Yesss, oh fuck Yesss! I want your cock in my mouth!
+Your pussy is incredible! I've never had a tastier pussy in my life.{p}I want to fuck you Anne!
+Oh god! You fill me so good!
+Oh fuck me! I love your cock in so deep inside me!
+I love the feel of being inside you! You are incredible Anne!
+Hold on!
+Oh my god Martin, this feels..Ooooo..Fuck....Oh my fucking god!!!
+AHH FUCK I'm gonna cum Martin....Martin fuck me! Fuck my pussy! YESSSS Make me cum!!!
+Cum on my cock Anne! Oh fuck ya! Let me feel you squeeze my cock as I cum inside you!
+OHHHHH FUCKKKKK!
+Amazing!
+I'm so happy you asked me to lunch today!
+Best lunch I've had in a long time. Would you meet with me again tomorrow?
+Sure, but maybe we can go to the beach intead.
+You bet!
+You get back to work
+An hour later there's a knock at the door.
+Come in!
+Any news on those uniforms?
+Actually yes! Chloe told me this morning that Tiffany had convinced everyone and that she was going to start designing.
+That's great news! Hopefully they are short little skirts like the diner!
+Haha, that would be nice!
+Keep me informed!
+Will do!
+You continue working until 5pm quittin time!
+You make your way home.
+*JEEZUS! I love that ass!*
+Looking good baby! Love coming home to this view!
+Glad you still enjoy looking at me!
+Of course, how could I not!
+How was your day?
+It was ok, the team at work has decided to get uniforms, so Chloe is designing them.
+That's fun! Chloe must be happy that she gets to use her skills for work.
+Yeah she seemed very happy to help. How was your day?
+Not very interesting at all. It was a really long day and I'm just happy to be home with you now.
+Dinner will be ready in about 5 minutes.
+Ok baby! I'm going to check emails to see what this weeks activity is going to be.
+Can't wait to find out.
+Go to a club together but enter separately and sit separately.{p}He can watch as she is hit on or dances with others in the club.
+Bonus - If she is comfortable, have sex with a male in he club or bring him home.
+Have fun!
+*Hmmm, not sure if I should mention the bonus part and just see how it plays out, if she's into it of course.*
+You move back to the dining room and join Anne.
+Wow, diner smells great baby!
+So, what’s the activity?
+It’s something a little different and could prove interesting.
+Well, what is it?
+We go to a club separately and I watch you get hit on and dance with them if you choose to.
+Interesting is right! I think this could be fun. Hopefully we don't run into anyone we know.
+So you're into trying it then?
+Of course! We done them all so far, why stop now.
+After dinner Anne changes into her sleepwear and you both move to the living room and watch tv.
+Have you heard back from the airline about the job?
+No, not yet. I hope I get it.
+I'm sure you will!
+*FUCK! What a fucking ass!*
+*Looks like she's fallen asleep.*
+*Yep! She's sleeping!*
+*Fuck! Do I ever love that body of hers.*
+*I have to. One quick grab then I'll take her to bed.*
+*This never gets old. I love this ass and always will!{p}Ok one more time!*
+*Alright, let's go to bed!*
+I love you baby!
+*What a sight to wake up to*
+My timing to wake up is impeccable.
+Good morning babe!
+Beautiful! Good morning beautiful!
+You get out of bed!
+Not going for a run this morning?
+Not this morning no! I didn’t want to get out of bed.
+Have you told Kenny about applying for a new job?
+No, not yet!
+Maybe you should say something, so he’s prepared and starts looking for a replacement.
+I know but I’m scared of how he’ll react.
+I’m sure he’ll be upset but better than leaving him high and dry.
+You're right!
+You both finish getting ready for work and leave together.
+Don't let this gorgeous ass of yours get you in trouble today!
+Maybe that's what I'm hoping for!
+Oooh you naughty girl!
+You take one more look at her ass before kissing her!
+Have a great day babe.
+Thanks baby, hope you have a great day too.
+See you tonight.
+Love you !
+Love you too!
+You make your way to the office!
+You spend the morning working with no distractions.
+You make your way home for lunch!
+You quickly make up some hotdogs for your lunch.
+You make your way back to your office.
+As you enter the diner you see Shannon sitting by herself.
+Hi Shannon!
+Hey %(t)s, how are you?
+I'm good thanks, how have you been?
+Been really busy but thought about you this morning so I decided to come to the diner hoping to see you.
+Well then, lucky you! Here I am!
+I just finished eating and was actually just about to leave, how about you come with me and we can...you know..play like adults do!
+There's nothing I'd rather do right now than play adults with you!
+Follow me then!
+*This is going to be fun!*
+You both make your way across the street to Shannon's place.
+You know you don't have to walk so far behind me!
+I'm just very much enjoying the view from back here.
+Then I hope you enjoy this!
+WOW Shannon! You look amazing!
+I can't wait to devour you!
+I like the sounds of that!
+Here we are!
+You and shannon begin to kiss very passionately
+Let's get on the bed!
+You climb on the bed as Shannon climbs on top of you taking your cock in her mouth!
+You devour her pussy as she continues to work your hard cock!
+Enough of this! Fuck me!
+You take her from behind as she begs you to fuck her hard!
+OH FUCK ME %(t)s! FUCK Me hard!
+OH MY GOD!!!! SOOOO GOOOODDD! FUCKKKKK OH GODDDDD I'm gonna CUMMMMM....
+Cum for me shannon! Cum on my cock!
+FUCKKKKKKK! YEAHHHHHAAHHAH
+Yes! My turn!
+Cum on me! Cover me with your cum!
+Oh Fuck yeah! So good!
+You both collapse on the bed beside each other.
+We have to do this again soon, I've never felt an orgasm that powerful before!
+That's nothing! Wait till next time and I will have you in an orgasmic trance.
+Promise!
+Definitely!
+I need to get back to the office.{p}Thank you for a wonderful lunch!
+My pleasure, it really was my pleasure.
+You make your way back to the office.
+I would love to but, I'm very hungry and have to get back to work right away after I eat.
+Have it your way. See you around.
+*Hmmm could have been fun!*
+Oh hey %(t)s, I didn't know you were here.
+I just got in! How are you?
+I'm good and you?
+Me too, can't complain!
+Are you going to have the Cheeseburger and onion rings?
+You know it!
+*Love this place and the uniforms.*
+*She's beautiful!*
+*And now she's showing me her whole ass!*
+Love that ass!
+Good to know!
+And what about these?
+Fuck ya! Love them too.
+I have an idea!
+And what is your idea?
+Naomi is away tonight visiting an old friend so I think you should come over and visit with me. What do you say?
+Can I get you something to eat or drink?
+Oh ummm yes please...I'll have the Cheeseburger and Rings please.
+Good choice, I'll be right back with that.
+*Holy shit! I can see her ass!{p}What a view!*
+*I wonder what Anne does on her lunches or if she even gets a lunch.{p}Maybe Kenny takes her out for lunch.*
+Hope you enjoy your lunch!
+Thank you!
+If you need anything else let me know.
+You quickly eat your lunch then head back to your office.
+You know what, I think I will take you up on that invite.
+Excellent!{p}I'll be right back with your food!
+Enjoy!
+Thanks Zarah!
+You quickly eat your lunch then head back to your office.
+You know I would love to, but I have to go straight home after work tonight.
+Alright then, I'll get your food.
+You quickly eat your lunch then head back to your office.
+Joining Anne.....
+Hi Martin!
+Hello Gorgeous!
+Everything ok?
+Yes and no! I'm feeling a little off today.
+Why's that?
+I applied for a job as a flight attendant and found out this morning that I got the job.
+Nice!
+But when I told my boss about it and gave him two weeks notice he told me to get out of his office and to not come back.
+That’s slightly over reacting! Why would he react like that?
+I don’t know, I think he may have thought of me more than just an employee.
+I see, did you give him reason to feel that way?
+*This is not a topic that I want to discuss with my father in law at this time.*
+Not that I'm aware of.
+You’re just to damn hot, I’m sure you have lots of guys in love with you that you have no idea of.
+Haha, Martin stop it!
+Do you think it’s time for you to get naked? I’m feeling a little strange being naked alone.
+Sure, I’ll get naked with you.
+Mmmmm! Beautiful!
+You have the most incredible ass I've ever seen!
+Thank you! Your son seems to think so too.
+Anne and Martin enjoy the sun beating down on their naked skin.
+The beach is really quiet today.
+What a difference from the weekend.
+Do you want to fool around?
+You know I do!
+Hmmm sooo hard!
+I love this big cock!
+And my big cock loves you too!
+Oh shit ya! Suck my cock!
+Come here and let me fuck you!
+Yes sir!
+Oh God Martin! Yes Fuck my pussy!.... Fuck me!
+I love fucking your pussy Anne! I don't ever want to stop.
+Pleassse don't stop! Fuck me Martin!
+Get on your hands and knees for me! I want to fuck you from behind!
+Your cock is so deep inside me! I love how you fill me!
+I'M CUMMING OH MY GOD MARTIN I'M CUMMING!!!!!!!
+I want to cum inside you!
+Yes cum in me! Fill me up Martin! Cum in my pussy!
+Anne and Martin relax after an exhausting fuck session.
+Unfortunately I have to leave now to catch my flight home. I’m so happy to have gotten to see you the last couple days.
+Happy to see me or fuck me?
+Both of course! I wish I could stay here longer.
+Me too but life goes on. We’ll see each other again soon I’m sure.
+Definitely!{p}Are you gonna stay on the beach?
+Ya might as well, now that I’m unemployed for a couple weeks.
+Almost like a vacation.
+Not paid though.
+I’ll be your sugar daddy if you need me too.
+Don’t tempt me, I may take you up on that offer.
+Have fun with your free time and hope all goes well with your new job.
+Thanks Martin or should I say Thanks daddy!
+Haha. I like the sounds of that.
+Me too!
+Martin leaves and Anne lays on the beach alone.
+You work the afternoon away until it is time to call it a day.
+Back at the office!
+You work the afternoon away until it is time to call it a day.
+*I love the feel of the sun on my naked body!*
+*Not bad looking and very nice cock!*
+*Haha, I knew he would look back.*
+Hi, what’s a beautiful girl like you doing on a beach like this all alone?
+Maybe just trying to enjoy a little sun by myself!
+Ok then, sorry to have bothered you and enjoy the sun!
+*I’m sure I would have been walking funny and very fulfilled had I allowed him to join me.*
+Anne remains on the beach for the remainder of the afternoon.
+Back at the office it is now quitting time.
+Maybe hoping to meet an attractive guy like you.
+Do you mind if I join you?
+Please do!
+So you come here alone to meet guys?
+No of course not! I had the afternoon off and thought I’d enjoy the beach.{p}I’m Anne by the way.
+Beautiful name on a beautiful girl! I’m Drake!
+Good to meet you Drake!
+Anne and Drake spend 45 minutes getting to know each other.
+Would you mind giving me a hand with lotion on my back?
+My pleasure!
+You have really nice skin!
+Thank you!
+Hmmm so soft!
+You're really enjoying this?
+I sure am! You have an incredible body!
+Thank you!
+Anne parts her legs a little as Drake moves between her legs.
+Oooh I wasn't expecting that!
+Is it ok?
+Yes it's good!
+This may sound weird but I have to say that you have one of the cutest assholes I've ever seen.
+Yes that is weird to say, can't say that anyone has ever said that about my asshole before.
+Have you ever had anal sex?
+No I haven't, I've always thought about it and have wanted to try it but was scared a little.
+How is this feeling?
+Good actually, different but good!
+Drake fingers Anne's asshole for a few minutes
+That's enough of that! I want to fuck you right here, right now!
+Oh fuck ya! I knew this big cock would feel so good as soon as I saw you walking the beach.
+You knew you would fuck me?
+No, but I hoped!
+Your pussy feels amazing but I bet your ass feels even better.
+I'm game for trying if you are!
+Shit ya I want to try!
+Drake works the head of his cock to Anne's asshole.
+How does that feel?
+Stretched! Like my asshole is stretched!
+Do you want to continue?
+Yeah!
+YEAH! YEAH...SO GOOOOODDDD!
+You like my cock fucking your ass!
+UH HUH! Fuck my Ass!
+Turn over! I want to watch your ass fucking my cock!
+Uh huh! Fuck my ass! Fuck meeeee!
+Your ass looks amazing swallowing my cock!
+I'm gonna cum!
+Cum in my ass!
+So good! So fucking good!
+Well I must say, you’ve definitely turned this boring Wednesday into one I won’t soon forget.
+I feel the same, and I could use a nap right about now.
+I hope I can see you again?
+I am married, but I would like to see you again too.
+I’m married too, so this can be our little secret! {p} Let me pamper you this Friday at the spa?
+I'd like that very much.
+Excellent. A friend of mine is co-owner of Veronica’s Heavenly Spa downtown, we’ll have a full relaxation package together.
+I’ve always wanted to try that place, I cant wait!
+Back at the office it is now quitting time.
+Not this time, maybe if we meet again! Just fuck my pussy as best you can!
+You got it!
+Oh yes fuck my pussy...make my pussy cum all over your big cock!
+I'M CUMMMMMING!!!!
+I'M CUMMING TOOOOO!!!
+Anne remains on top of Drake as he cums inside her!
+Well I must say, you’ve definitely turned this boring Wednesday into one I won’t soon forget.
+I feel the same, and I could use a nap right about now.
+I hope I can see you again?
+I am married, but I would like to see you again too.
+I’m married too, so this can be our little secret! {p} Let me pamper you this Friday at the spa?
+I'd like that very much.
+Excellent. A friend of mine is co-owner of Veronica’s Heavenly Spa downtown, we’ll have a full relaxation package together.
+I’ve always wanted to try that place, I cant wait!
+Back at the office it is now quitting time.
+You make your way to Zarah's apartment!
+You knock on the door.
+Come in!
+Holy shit!
+I’ll take that as you like what you see?
+Fuck ya! You are gorgeous!
+Naomi texted me saying she would be home earlier so I figured we’d just get to it since we both know that’s what we want.
+You grab Zarah and begin kissing her hungrily!
+Are you ready to have your way with my body?
+Definitely!
+*Hot little body on her.*
+*Love that cute little ass!*
+I wanted to see you like this since the first day we met at the diner.
+*What a beautiful fucking pussy! I'm gonna enjoy this very much*
+Oh god %(t)s! You sure know what your doing with a pussy! So good!
+I've never felt so good! Oh shit %(t)s!
+I want to fuck you!
+Then fuck me!
+OH FUCK! OH MY FUCKING AHHHHH!
+SOOOO GOOOD! FUCK ME! FUCK ME!
+Yes %(t)s fuck me, fuck me!
+No one has ever made me feel like how I feel right now!
+I'm excited to make you feel new things!
+Oh %(t)s I'm gonna cum!
+OOOHHH MMMYYYYY GGGGGOOOOOODDDDDDD!!!!
+Zarah screams with pleasure as you continue to pound your cock into her intensifying her bliss.
+He it comes!
+Zarah collapses down as you begin to unload over her ass and back.
+That was so good %(t)s, please come over more often.
+I will definitely try, I'll see what I can do.
+Thanks for coming by, I had lots of fun!
+Me too, thanks for inviting me.
+You leave Zarah's apartment and make your way home.
+Hello beautiful!
+How was your meeting?
+It went well.
+I called your office and they said you left right at 5!
+*FUCK! Think fast!*
+I left the office at 5 but so did my whole team. We went next door to the diner and had our meeting there.
+I see!
+So how was your day?
+It was kind of an up and down day. This morning I got a call from the airline letting me know I got the job and could start in a couple weeks.
+Nice baby! Congratulations!
+Thanks But Kenny wasn’t so understanding when I told him and he fired me and told me to leave right away.
+What an asshole! I’m gonna call him and give him a piece of my mind.
+No don’t babe! It’s fine!
+I see what you mean now by an up and down kinda day.
+You make your way home.
+Hi babe! How was your day?
+Uneventful as usual, couldn’t wait to come home to my beautiful wife. And yours?
+It was kind of an up and down day. This morning I got a call from the airline letting me know I got the job and could start in a couple weeks.
+Nice baby, congratulations!
+Thanks But Kenny wasn’t so understanding when I told him and he fired me and told me to leave right away.
+What an asshole! I’m gonna call him and give him a piece of my mind.
+No don’t babe! It’s fine! I get some time off before starting the new job
+I see what you mean now by an up and down kinda day.
+Yeah! It played with my emotions for sure.
+Did you just come straight home?
+No I went to the beach and just relaxed.
+Good for you, you deserve to relax!
+Thanks babe!
+I'll go start dinner!
+Ya it played with my emotions for sure but there’s more.
+Seriously?
+Yeah! My emotions weren’t the only thing up and down today.
+What are you saying?
+We’ll, instead of coming home I decided to go relax on the beach and I met a guy there named Drake and one thing led to another and...
+And...???
+My pussy was stuffed with his big cock and I bounced up and down on him.
+Oh my god baby! You fucked a stranger on the beach?
+Yeah, It was deserted today and he had such a nice big cock so after the day I had, I needed it. I needed a big cock inside me fucking me!
+Fuck, you're such slut! My slut! This sounds so hot!
+I kept imagining you were there watching me and stroking your cock as this stranger fucked your wife.
+I would have loved to have been there baby.
+This is making me hot again, come devour my pussy like you love to do!
+Anne takes her shorts off and sits on the couch invitingly!
+Ahh yess! That's what I wanted!
+Can you taste Drake inside me?
+Uh huh!
+Do you like it?
+You don’t answer!
+YESSS BABE OOOOHH YESSSS I'M CUMMMMMIIINNNNNNGGGGG!!!!!
+You sure seemed to enjoy that?
+I did, very much enjoy you cleaning me up!
+That’s good! I'm glad you enjoyed that! I’ll go start dinner.
+*Weird thing is I actually very much enjoyed cleaning her up!*
+*Why?....I don't get it! I actually loved that!*
+You head to the kitchen and make dinner then join Anne in the dining room.
+What do you feel like doing now?
+I am exhausted, I think I’m gonna call it a night!
+Honestly, that’s sounds like a great idea. I’m gonna join you!
+You both finish your dinners then head to bed.
+Goodnight beautiful!
+Goodnight babe! I love you!
+I love you too baby!
+Oh fuck that's good!
+I want to ask you something I’ve been thinking about.{p}You’ve gotten to watch me a few times now with a few guys….
+And I was wondering what you would say if I wanted to watch you with a girl?
+Really?
+I would love to do that for you baby but who?
+How about Nicole?
+Sure why not, I’m sure she’d be up for it.
+She already is!
+I should have known.
+Baby!!!! I'm gonna cum!
+I don’t know, can’t be that hard for you to find a girl to fuck!
+I'll see what I can do.
+Baby!!!! I'm gonna cum!
+I don't know babe, I don't think I'd be comfortable having sex in front of you with you just watching.
+But you want me to do that in front of you!
+Yes, but you know you love being watched.
+Anne just sucks your cock and doesn't say another word.
+Baby!!!! I'm gonna cum!
+That was amazing baby! Thank you.{p}But no time for breakfast this morning so I’ll just get dressed then go.
+Have a good day babe!
+You too baby, don’t get into too much trouble.
+I’ll try but can’t promise.
+I love you!
+I love you too babe!
+You get dressed then leave for work.
+Your morning is peaceful and you work straight through to lunch with no distractions.
+Your morning is peaceful and you work straight through to lunch with no distractions.
+Hmmm? Which girl should I ask to sleep with me while Anne watches?
+Your morning is peaceful and you work straight through to lunch with no distractions.
+You sit at your desk and enjoy your lunch.
+As you are enjyoing your lunch you hear a knock at your door.
+Come in!
+Hi %(t)s, I’m wondering if you’d like to see two samples I have for the uniforms?
+Of course I would!
+You make your way home for lunch!
+*Hmmm, I guess she went out!*
+*Yep, she's out!*
+You quickly have your lunch then head back to work.
+Hi Chloe!
+Hi %(t)s, I’m wondering if you’d like to see two samples I have for the uniforms?
+Of course! Let’s go to my office.
+Do you mind turning around and I’ll change into the first one?
+You don’t have to put them on, you can just show them to me.
+I want to put them on and show you!
+Ok then!
+Ok, you can turn now!
+Wow! Very nice Chloe. You are so talented.
+Do you think the shorts are too short?
+Not at all! They are perfect!
+Ok turn around so I can change into the next one.
+This one was inspired by the diner!
+Can't wait to see it.
+Ready!
+I like it! I love the skirt! Very nice Chloe!
+The skirt is not too short and covers all that needs to be covered.
+You like this one best don't you?
+To tell you the truth, I like them both the same. I'm gonna let you and the team decide which one you want to wear.
+Ok turn around again so I can change!
+The girls like the skirt outfit but the guys like the shorts!
+Well it’s settled then, the skirt it is, since the guys aren’t the ones wearing them.
+Ya but they have to look at them all day long so I was thinking what if we wear the shorts on Monday and Friday and skirt for the other three days.
+You can turn!
+I like it! Great idea Chloe and you please everyone.
+That was the idea! I’ll get back to work now. Thanks %(t)s.
+My pleasure Chloe and thank you for two great designs, you are so talented.
+That means so much, thank you!
+*WOW She's beautiful!*
+See you later %(t)s! Thanks again!
+Bye Chloe!
+*I should let Gary know!*
+You make your way to Gary’s office.
+Hey Gary, just wanted to update you on the uniforms and let you know they are finalized.
+Seriously? I never got a say in them?
+I left it to the team to decide since they are the ones wearing them.
+I guess that good of you to do! So what are they like?
+Sexy, very sexy!
+Keep the wives away from the office sexy?
+Definitely!
+Sweeeet! Thanks for the great news.
+You head back to your office.
+The remainder of the afternoon flies by and now is quitting time!
+You make your way home..........
+I need to take a little peek.
+I knew you would look!
+I’m sorry, I couldn’t help myself.
+It's fine, you don’t need to turn around then! Enjoy the show!
+Oh I will!
+I love it! That’s the uniform!
+Wouldn’t that be something? All of our clients would hang around our offices and we’d probably be a lot busier.
+I wouldn’t get any work done!
+Well with these two designs you still may not get much work done!
+Those are very nice!
+Very nice Chloe and I see what you mean! I’m really not thinking about work right now!
+Definitely not thinking about work.
+Funny!
+This next one is inspired by the diner. Tiffany’s idea!
+Of course it is!
+I do like it!
+Which one do you like best!
+I’m gonna let you and the team choose, I like both equally and I must say you are extremely talented and not to mention extremely sexy as well.
+Thanks %(t)s you are sweet.{p}The girls like the skirt outfit but the guys like the shorts!
+Well it’s settled then, the skirt it is, since the guys aren’t the ones wearing them.
+Ya but they have to look at them all day long so I was thinking what if we wear the shorts on Monday and Friday and skirt for the other three days.
+I like it! Great idea Chloe and you please everyone.
+That was the idea! I’ll get back to work now. Thanks %(t)s.
+My pleasure Chloe and thank you for two great designs, you are so talented.
+That means so much, thank you!
+Oh my god! I’m so sorry. I don’t know what came over me.
+Don’t be sorry Chloe it was just a friendly kiss.
+I still feel embarrassed, I don’t know why I did that.
+Just caught up in the moment, that’s all it was!
+Your wife would hate me if she found out.
+You’re way over thinking this. My wife won’t ever find out.
+Ok, good to know.
+See you later %(t)s! Thanks again!
+*That was weird! Talk about overreacting over a simple kiss.{p}I should let Gary know that the uniforms are finalized.*
+You make your way to Gary’s office.
+Hey Gary, just wanted to update you on the uniforms and let you know they are finalized.
+Seriously? I never got a say in them?
+I left it to the team to decide since they are the ones wearing them.
+I guess that good of you to do! So what are they like?
+Sexy, very sexy!
+Keep the wives away from the office sexy?
+Definitely!
+Sweeeet! Thanks for the great news.
+You head back to your office.
+The remainder of the afternoon flies by and now is quitting time!
+You make your way home..........
+But first....let's see what Anne was up to!
+We join Anne talking with Phil at the front door.
+So what do you say? Will you help me out and pose for a few photographs for me?
+What would I have to wear?
+You can wear what you have on now!
+Ok then Phil, I will help you out!
+Excellent, let's go to my studio.
+Anne goes with Phil to his studio.
+Here we are, I'll get behind my camera and you just pose for me!
+How would you like me to pose?
+Just do whatever comes naturally!
+Ok Phil, I will try my best.
+You don't even have to try to look beautiful Anne. You are a natural beauty!
+Aww that's sweet!
+How's this?
+Beautiful!
+This is kinda fun!
+Good I'm glad you're enjoying yourself.
+Very nice Anne!
+Ooh, sultry! I like this look!
+Oh hey dad! I didn't know you were working today!
+Hi Donny, You remember Anne? I asked her to help me out today with a shoot.
+Oh cool, And how is Anne doing?
+I'm good, thanks and you?
+My day just got a whole lot better seeing you!
+Like father, like sun with the flattering words.
+I have an idea, lets do a couple shots with the two of you together.
+Sure, that sounds like a great idea.
+Ok but only a couple.
+Yes, that's it! Hold that look
+Just go with what comes natural.
+Nice Donny, It looks like you're going to kiss her neck!
+Ahhh shivers!
+Well done Donny! Hold her from behind and wrap your arms around her.
+Like this!
+Perfect!
+No pick her up and hold her just above you.
+How's this?
+Beautiful!
+I want to kiss you!
+Anne lowers her mouth to Donny's and kisses him.
+Oh yes! Now this is good!
+Donny lowers Anne and continues to kiss her with no objection from Anne.
+Beautiful...Keep it going!
+Anne is now lost in the moment and going with the flow.
+Take her shirt off!
+Anne breaks the kiss and lowers her hand to the front of Donny's jeans.
+Yes that's a girl.... Take your pants off Donny!
+Donny does as his father told him and removes his pants as Anne grabs his cock.
+That's a girl Anne! Suck my sons cock!
+Take her pants off and fuck her son!
+Not yet dad, I want to taste her first!
+Donny removes Anne's jeans and bends her forward against the wall.
+Oh god that feels so good! {p}I want to feel you inside me Donny! Fuck me!
+Fuck her Donny! She's begging you!
+Yes Donny Fuck my pussy! Fuck me!
+Oh fuck this is so hot!
+Fuck my pussy Donny! Fuck me hard!
+How well is my son fucking you Anne!
+Uh huh good! Ohhh goood!
+I'm gonna cum!
+Cover her ass with you jizz!
+Well that was not how I thought this photoshoot was going to go!
+But it was fantastic! Let's get cleaned up and call it a day!
+We're now going back to you getting home.....
+Hello beautiful!
+Hi babe! Dinner will be ready in 5 minutes.
+Nice! Thank you baby!
+You kiss Anne on the shoulder!
+I love you babe!
+Love you too baby!
+You both sit at the dining room table for supper.
+What did you end up doing today?
+I went to the mall and just browsed around.
+Sounds exciting!
+Better than working in an office all day.
+Touché! You got me there.
+Did you give any thought to who you’d like to have me watch you with?
+I have given it some thought but have yet to find someone.
+Have you asked anyone?
+No!
+Better get asking
+Ok baby, I will get on it!
+I’m gonna jump in a quick shower then call it a night.
+Ok babe! I'm tired too so I'll meet you in bed.
+You fall asleep before Anne gets into bed.
+Sounds exciting!
+Better than working in an office all day.
+Touché! You got me there.
+I’m gonna jump in a quick shower then call it a night.
+Ok babe! I'm tired too so I'll meet you in bed.
+You fall asleep before Anne gets into bed.
+Good morning beautiful!
+Good morning!
+Not going for a run?
+I will after you leave for work. I want to spend a few minutes with you this morning.
+Awww! You're cute baby!
+What do you have planned today?
+I dunno yet! I may go to the gym or the spa. See what the day throws at me.
+Well hope you have a great day no matter what you decide to do.
+Thanks babe!
+You get up and get dressed then make your way to work.
+The morning flies by and decide to have lunch at your desk.
+As you are having your lunch there is a knock at the door.
+Come in!
+Hi Gary, everything ok?
+Ya of course, was just checking to see if you were still coming to my get together tonight?
+Alright! Enjoy the rest of the day!
+Let's see how Anne's day is going.....
+Anne keeps her commitment to Drake and meets him at Veronica's Heavenly Spa!
+I'm so glad you met me here! Let's get changed.
+Anne and Drake get changed into the provided robes.
+We start with the sauna!
+Sounds like a plan to me.
+Oops! Just squeezing by!
+Haha! Nice Drake!
+Anne what are you looking at?
+Heaven!
+You like to tease don't you!
+Anne doesn't answer.
+It's getting hot!
+And you thought I was teasing you then.....
+Fuck you are so fucking hot!
+Well are you gonna just sit there?
+Fuck! I'm just mesmorized by you!
+Oh yeah! That is what I wanted.
+Ok that's enough for now! Behave!
+You are wild! You are trouble!
+Well then, let's see what kind of trouble we can get into.
+Your umm mister is hanging out, might want to cover him up.
+Oops, you go him a little excited!
+You said a friend of yours is co-owner of this place?
+Yeah that's right!
+So you bring all the ladies here!
+Besides my wife, you are the first.
+Good to know!
+This is where we relax and wait for Veronica and Troy!
+Are you ready for this?
+Fuck! You are perfect in every way!
+How long do we have before they come?
+Enough for me to tease you a little.
+Ummm excuse me?
+I'm the one who does the teasing here.
+Oh common!
+Fine!
+Well you could have put up a little bit of a fight.
+Would have let me know that you were really into me.
+Oh common! I think I've already shown you a couple times how much I'm into you!
+Anne relaxes and begins to start dozing off waiting for the masseuse as Drake passes right out!
+Looks like he's having an interesting dream!
+I know her from somewhere.
+AAHAAAHHA What the fuck!
+Sorry didn't mean to startle you but looks like you two fell asleep.
+Troy?
+Yes I knew I knew you! You're married to my wife's boss!
+That's right! We were at your place last week!
+Oh yeah! I remember!
+Shall we go for the massages?
+Take good care of her Troy!
+And I will take care of Drake here!
+Looking good Anne! Happy to see you again! Just lie down and we can begin.
+Actually lets begin with the back of your legs.
+That feels good! I had no idea you worked here!
+Well I guess that was kinda my fault. I was a little non social the night you were over with your husband.
+Ya you were, but I loved the way your barged your way into the washroom and demanded my panties.
+Good! You like a man who takes control!
+Depends on the man!
+So, how do you know Drake?
+He's just some guy I met on the beach a couple days ago and Invited me to come here today.
+Interesting!
+You like massaging my ass!
+Yes I do! You have a great ass, so firm!
+Drake has fallen asleep so Veronica leaves the room for a few minutes
+Feels more like your groping me now then massaging.
+Do you like it?
+Maybe!
+Let's turn you over now!
+Ok so the groping continues!
+I don't see you stopping me!
+Why stop a good thing!
+Shall I continue!
+Please do!
+Oh that feels soooo good!
+You haven't felt nothing yet!
+Face me!
+OHHH GODDDDD YESSSSSS
+OH Fuck I'm cumming!
+OH FUCK OH FUCK!
+Take your pants off and feed me your big cock!
+I want to fuck you!
+Oh god! Yes!! ... Let me get on my hands and knees and.... oh fuck me Oh fuck me hard!
+How's that? Do you want me to fuck your pussy?
+UH HUH! FUCK MY PUSSY!
+UH HUH UH HUH!
+OH FUCK I'M CUMMMMMINGGG!!!!
+I'm gonna blow inside you!
+YYYYYYEEEEEEEEEEEEEESSSSSSSSSSSSSSSSSSSSSSSS!
+OH GOD Your filling me up!
+I've never felt so fucking full!
+What the fuck Troy!
+Shit man, you were sleeping!
+It's not like I'm your girl anyways Drake.
+I see you met Troys big boy!
+I sure did!
+It's given me plenty of good nights!
+Oh I believe it! I wouldn't mind having him for a few nights too.
+That can be arranged.
+What the fuck is going on?
+Don't worry Drake, follow me and I'll take good care of you!
+There you go buddy! Show Veronica a good time!
+Fuck yeah! I'll take good care of you!
+Anne relaxes in the jacuzzi while Drake and Veronica have their fun.
+Miss me?
+Of course I did! How was your time with Veronica?
+Fun but she has nothing on you!
+Are you ready for some real fun now?
+What do you have in mind?
+Well I was thinking that maybe you might like a go with both Troy and I?
+Oh my god that does sound like fun but I think Troy is sleeping.
+Go wake up him up, I'm sure he wont say no!
+Hey there! Big boy! Wake the fuck up!
+Huh? What?
+It's time for you to fuck me again!
+Fucking rights it is!
+Ok boys! Time to have some fun!
+YESSS! I must be dreaming!
+Look at her handle that big black cock of yours!
+She's a pro man! Not her first BBC that's for sure.
+And it ain't my last either.
+Who's fucking me first?
+That's me!
+Switch!
+I love this pussy! Best pussy I've ever fucked!
+Yeah man! This is good pussy! Thanks for bringing her in today!
+OH FUCK HERE I CUMMMM!
+FUCK ME DRAKE! COMMON FUCK MY PUSSY!
+YESSSSSS OH FUCKKKK YESSSSSS!!!!
+Common boys cum for me! Cover me in you hot cum!
+YESSSSS!
+FUCK!!! TAKE THIS SHIT!
+You boys sure covered me with a lot of cum! I'm gonna go clean up.
+I'll meet you back here after I get changed.
+Before you leave I will need your panties.
+Oh is that so? Well then let me get those off for you!
+There you go! Hope to grow this collection of yours
+We return back to you at your desk
+The rest of the day flies by and you head home.
+The rest of the day flies by and you head home.
+Hello beautiful!
+Hi babe! Are we still going to the pool party thing at your bosses?
+Yep, I was hoping to if you are still up to it?
+Of course!
+Cool! Let's quickly get changed and go!
+Hi babe! How was your day?
+It was good, actually went by quickly, and how was yours?
+I had a nice relaxing day at the spa! It was nice.
+That's good baby! Glad you had a relaxing day. I'll go start dinner.
+Ok babe!
+You whip up steak and potatoes for dinner and join Anne in the dining room.
+Any plans for this evening?
+I thought we would just relax in front of the tv, if that's ok with you?
+I'm tired so yeah, that sounds like a perfect evening to me.
+You both eat you dinners than move to the living room to watch tv.
+* It's so hard to concentrate on anything but her ass!*
+I'm exhausted baby! I'm going to bed!
+Me too.
+I never get enough of this view!
+I hope you still say stuff like that when I'm 70!
+As long as your body and ass still look this good, I will!
+You watch as Anne undresses!
+You enjoying yourself!
+Always!
+That feels so good! I need to sign up for Yoga classes!
+Maybe you should do that! I'd love to be in your class!
+Sicko!
+Would you come to a class with me?
+I've never tried so I guess I could attempt once and see how it goes.
+I'd like that, if you did something like that with me.
+I will give it a shot for you baby! Goodnight!
+Goodnight babe!
+You both get changed and make your way to Gary's house.
+You're sure this is the place?
+Yes baby! This is Gary's house!
+He's sure doing well for himself. When are you gonna be the boss?
+One day baby!
+You knock on the door.
+Hello!
+Hi we're here as guests of Gary, my husband's boss!
+Ah yes! You must be %(t)s! I'm Gary's wife Abby!
+Yes, I sure am!
+*Shit! Gary has a hot young wife! and her bikini is see through!*
+Gary speaks highly of you all the time!
+Good to know!
+Common in, we're all by the pool.
+I love your dress!
+Thank you! I love your house!
+*I love this view!*
+There's Gary!
+Glad you could make it.
+Of course! This is my wife Anne!
+WOW, %(t)s speaks of you often but never told me how beautiful you are!
+Thank you!
+You too Gary, your wife is gorgeous!
+Why thank you!
+Why don't we get in the pool!
+Sure let's do that!
+You and Anne get changed then join Gary and Abby in the pool.
+How's the water?
+It's warm! The pool is heated!
+Nice!
+You join Gary in the pool as Anne sits on the edge of the pool.
+You two have any plans for the weekend?
+Not really! May go check out a club tomorrow night but other than that it's going to be a relaxing weekend. And you?
+Same! We never really have plans and just go with the flow!
+You spend the next hour making small talk wiht Gary and Abby!
+If you'll excuse me for a minute, I need to go use the washroom.
+We'll be right here when you get back!
+*FUCK! I love my wife!*
+You may run in to Gary's son Luke upstairs.
+Don't get scared if you hear noises he's kind of shy and a loner.
+You continue to converse with Gary and Abby!
+Let's join Anne.......
+*This is such a nice house!*
+Anne can hear noises coming from the room at the top of the stairs.
+*Must be Gary's son!*
+Not what Anne expected to see when she reached the top!
+*He's stroking his cock looking out at the pool.*
+Which girl are you looking at?
+OH MY GOD! Don't tell my dad please!
+Why would I tell your dad?
+Abby always tells my dad when she catches me.
+So does this happen often?
+No, not really!
+How old are you?
+I just turned 19 a couple weeks ago! I'm all adult now!
+Is that so! So which girl were you looking at out there?
+Not one in particular. I like them all and you too.
+Come sit here!
+So would you like to continue while looking at me?
+Seriously? You're ok with that? You're so much cooler than Abby!
+Have you ever touched or been touched by a girl?
+Not in the way I would like one to touch me, that's for sure!
+Hmmm, have you ever seen a naked boobs before!
+Yes I spy on Abby in the shower all the time, but I would love to see yours!
+Oh my god! Those are perfect boobs! Oh no I'm gonna blow!
+Shit! You sure cum a lot!
+That was life changing!
+Have you go a lot to discover still!
+Is there any chance I can see you again and maybe do this again?
+You know what? I think I can do that for you! You're cute!
+You are so hot! I can't wait till next time!
+Anne bends and kisses the tip of Luke's cock!
+Oh my god! I almost came again!
+Anne leaves the room and goes to the washroom to get cleaned up and then heads back to the pool.
+Welcome back! What took so long?
+I met Luke upstairs!
+I hope he behaved! He's not used to beautiful women around.
+He's nice! Just needs a little attention, that's all.
+Good to hear he behaved. He's been caught numerous times spying on Abby!
+*I don't blame him! I'd be doing the same thing!*
+Anne and Gary continue talking about Luke as you look up to see the beauty that Abby is talking with.
+She see's you looking up at her and gives you a beautiful smile!
+* Need to focus here so I don't get myself in trouble!*
+Hey Gary!
+Kelly and I are gonna leave. Thanks for having us over.
+Thanks Abby and Gary for having us over, it was fun! Bye everyone!
+I think it's time we leave to, what do you think?
+Sure!
+Thanks for having us over Gary but we're going to call it a night.
+Thanks for coming over it was nice meeting you both!
+It was very nice!
+See you monday %(t)s!
+You bet Gary!
+You and Anne leave and make your way home to bed.
+So did you have a good time tonight?
+I did, I'm glad we went to your bosses party it was fun. Especially meeting Luke.
+Huh? Why is that the highlight!
+I caught him playing with himself watching us girls in the pool.
+Seriously?
+Ya so I got on his bed with him and took my top off then let him finish while looking at me.
+You didn't do anything else with him?
+Not this time!
+Ok, so there will be other times?
+Yes, I'm sure there will be. Goodnight babe!
+Goodnight baby!
+*Argh! I feel like I overslept!*
+*What time is it?*
+*What the fuck! 12:37! Where’s Anne?*
+Well look who decides to finally get up!
+Why didn’t you wake me up?
+I tried twice, at 7:30 and at 9 and you just grunted and mumbled shit so I gave up.
+Fuck, I must have really needed to catch up on sleep.{p}Did you go for a run?
+No I didn’t feel like it today! Just been watching tv.
+Mike texted me earlier saying that they wouldn’t be able to make it this weekend, his wife is not feeling well.
+Aw that’s too bad, are you still wanting to go to the club to do the email activity?
+Ya if you’re still up to it?
+Yep I’m still wanting to go! Of course!
+Good!
+You spend the day lazing around.
+Guess I should start getting ready. It's alreay 8 o'clock!
+Good idea!
+Make sure to wear something extra sexy!
+If you say so!
+You both get changed.
+WOW!
+Sexy enough for you?
+Perfectly sexy!
+You make your way to the club!
+You head in to the club first!
+A few minutes later Anne walks in.
+*There she is! What a sight!*
+Anne goes to the bar and orders a drink.
+Looks like that guy has taken notice of her!
+*Ok here we go!*
+*Let the action begin!*
+*Kinda boring to watch this….still hasn’t even touched her!*
+*There you go! Grab her ass!*
+*Ok! Now she's kissing him!*
+%(t)s?
+Holy shit! Mia? Hi!
+I thought that was you.
+Mia gives you a hug!
+You now have a decision to make!
+It was really good to see you but I’m here with my wife!
+Ah ok I get it.
+I'm really sorry Mia!
+It’s fine. I completely understand.
+You walk over to the restroom door and listen in!
+*Fuck! I can't hear anything...{p}Fuck this, I'm going in!*
+You can see Anne's shoes below the stall door.
+You quietly make your way into the neighbouring stall.
+*Hoy shit! Sweet! A gloryhole!*
+Shit girl you are good but I'm gonna fuck your pussy now!
+Anne bends over the toilet as this stud is about to penetrate your wife's pussy!
+Yeahhhhh! Fuck me!!
+Suck his cock!
+*What the fuck? Suck whose cock?*
+*Fuck! That’s hot! I want my cock sucked too!*
+You stick your cock through the hole and Anne takes it in her mouth, sucking your cock.
+I'M GONNA CUM.....ALL OVER YOUR FUCKING ASSSSS!
+AHHHH FUCK! That was good!
+Anne returns her attention to the cock across the stall.
+OH FUCK YEAHH I'M CUMMMMMIIINNNNGGG!
+Yess cover me in your hot cum!
+Now fuck his cock!
+FUCK ME! FUCK ME! I'M GONNA CUMMMMMMM!
+You explode deep into your wife as she erupts with her orgasmic bliss.
+Holy fuck! He came inside you!
+He sure did!
+You quickly get your pants back on and head back into the club before Anne and her new friend see you.
+Are you here alone?
+I was here with a friend but she had to leave abruptly, so yeah now I’m here alone.
+Not anymore you’re not, you’re here with me.
+I like the sounds of that.
+Me too!
+You both enjoy a couple drinks and you begin to forget about Anne.
+I'm going to the restroom!
+Meet me there in 2 minutes.
+*Hmmm? I wonder where Anne is?{p}I'll look for her after I have some fun with Mia.*
+Mia?
+Right here!
+Let's play this scene out from Anne's point of view....
+*Hmmm! Who's that with %(t)s?*
+*What the fuck? Is he following her in the restroom?*
+*He followed her in.*
+Umm sorry but I gotta go!
+Anne goes straight in to the restroom.
+*I can see their feet!{p}How could he cheat on me like this? It’s supposed to be me doing this!{p}Maybe he knew I would follow him! He wants me to watch.{p} I’m so overwhelmed right now with mixed emotions.*
+*I need to be quiet!*
+Anne notices the gloryhole and drops to her knees to see what they are doing!
+*She sees me watching her suck %(t)s's cock but she doesn’t know who I am!*
+Put your hard cock in the hole! Some slut wants it.
+What? Really who?
+I didn’t ask her name! Just give her your cock already!
+Anne hold your cock and gently strokes it.
+*This feels so naughty, but that’s my husbands cock!*
+She's stroking my cock!
+Kiss me!
+Oh shit! She’s…. oh fuck… she’s good! She’s sucking my cock!
+My turn, I want your cock!
+*Hes gonna fuck her! Im so fucking wet right now!*
+OH YESSSSS!!! Fuck my pussy!
+OH MY GOD YESSSSSSSSSSS!!! OHHHHH FUUUUCCCCCKKKKKK!
+Do you want to fuck her?
+Who is she?
+Who cares? Just fuck that slut!
+Anne backs her ass to the hole as you penetrate her.
+Oh god that’s good!
+UH Huh!
+YESSSSSS! UHHH HUUUHHHHHHH!
+Fuck her pussy is tightening I'm gonna cum!
+I want it! I want your cum!
+*That belongs to me bitch! Haha!*
+Anne leaves the restroom!
+*What the fuck? He’s going to meet her in the ladies room.*
+Do you want to have some fun in the restroom?
+Fuck ya! Meet me there!
+*If %(t)s can get fucked, I can get fucked!*
+*OH Yeah! Now this is going to be good!*
+You ready to fuck me big boy!
+Get in here and let me show you how ready I am!
+Anne rips off her dress and bends over the stall as this stranger takes her from behind.
+Oh FUCK! That's what I want! Fuck me hard!
+Yyyeahh! Oh yeahhh!
+You love my cock don't you! I'm gonna fuck you hard!
+Uh Huh! Fuck me! Fuck me hard!
+OH FUCKKKKKK! I'm CUMMMMMMINNNNNNGGGGG!
+OH Yes! Fuck it! Yeah! Fuck it!{p}I'm gonna cummm!
+Thanks for a fun time, I need to find my husband now!
+Husband? Oh you slut!
+That's right! I'm his slut!
+Anne leaves the restroom!
+You and Anne meet up at the bar about 15 minutes later.
+You look happy?
+Of course I’m happy, I just fulfilled a new fantasy of mine.
+You did? Which fantasy?
+I just watched you fuck that girl in the restroom.
+What the fuck? From where?
+I was the other slut who sucked and fucked you
+I knew that mouth felt familiar, too good to be anyone else.
+Tonight was fun, we should do this again but let’s go home now.
+You both leave the club and make your way home.
+Of course I’m happy, I just got fucked by a big black cock! Didn’t you watch?
+You did, Shit! lost sight of you!
+You lost sight of me from the ladies room?
+Huh?
+I saw you go in there with that blonde slut you were talking to.
+I'm sorry baby!
+Don’t be sorry, just be honest with me. I’m fucking other guys so I figured you’d be fucking girls to but just be honest!
+I will, I’m sorry!
+Again! No need for sorry. Let’s go home!
+You both leave the club and make your way home.
+Of course I’m happy, I just had fun with two strangers and my husband.
+How did you know it was me?
+Do you think I don’t know my husband’s cock?
+I guess you know it better than I thought.
+Tonight was a lot of fun, we should do this again but let’s go home now.
+You both leave the club and make your way home.
+Thanks for a great evening baby! I love you!
+It was great and thank you too babe!
+Goodnight!
+Night babe!
+I need to ask….. how long have you been fucking other girls and don’t say this is the first time.
+It’s not the first time but it’s only been a couple times. I promise I will be honest with you from now on!
+I know I should be pissed right now, but I’d feel like a hypocrite if I was. All I ask is honesty!
+You got it baby!
+Ok goodnight!
+Goodnight baby, I love you!
+I love you too.
+I’m not really feeling up to it today, this has been an exhausting week!
+That’s ok babe! We can go another time, it has been a very exhausting week
+You and Anne spend the entire day lazing about.
+You hear a knock at the door.
+Who could that be?
+I knew you would forget that mom was coming this weekend.
+Oh yeah! I did forget, I’m sorry!
+Anne quickly puts on her robe and goes to the front door.
+Hello %(t)s!
+Hi Josie, it’s so good to see you!
+You too you handsome man
+What’s new? How have you been?
+Oh you know, life as usual keeping me on my toes. Working every day and trying to keep Eric in line!
+Is Eric giving you trouble?
+Not Eric but Sandra, his girlfriend! She's just no good, she’s out drinking all the time and I’m sure she’s fucking around!
+Mom!
+I’m sorry but we’re all adults here and you can’t tell me you don’t swear!
+It’s just weird mom, I’m not used to hearing it from you.
+Anyways, I need to find a way to prove it to Eric that Sandra is bad for him.
+The next hour goes by as you all catch up
+I’m sorry but I’m exhausted after that drive, where is the guest room in this new home of yours?
+I'll show you mom!
+I’m gonna hit the sack too!
+Have a good night, see you in the morning.
+Good night %(t)s, you know where to find me!
+Mom! Please!
+Oh relax Anne, I’m just playing!
+I’m sorry about my mom. She’s always flirted with my boyfriends.
+It’s harmless baby! It’s ok!
+Ok goodnight!
+Goodnight baby, I love you!
+I love you too.
+*What the fuck? Sounds like someone’s banging on the door?*
+You hear the knocking again.
+Coming!
+You open the door and let Anne's mom in!
+Hi Josie, how are you?
+Well I’m a little irritated to tell you the truth! {p}I arrived last night to find no one home and to top it off, I lost my phone so I couldn’t get a hold of anyone.
+Oh my god! Anne said you were coming this weekend but didn’t say when exactly! Where did you spend the night?
+I got a room downtown! So where’s Anne now?
+She’s still sleeping!
+No, I'm up!
+I’m sorry mom, I honestly forgot you were arriving last night.
+Not the first time you’ve forgotten your mother because of your affairs.
+*Hmmm! Interesting choice of words.*
+Anyways, are you hungry?
+Yes!
+I'll go make breakfast!
+*I know it’s creepy but I could watch her sleep for hours.*
+*Especially when she sleeps naked.{p}I’ll go start breakfast.*
+You hear the shower running and see the bathroom door open.
+*Looks like Anne’s mom, forgot to shut the door……or did she forget?*
+*One quick little peek wont hurt!*
+You move slowly to the opened door.
+What the fuck?
+We’re you trying to creep on me?
+No of course not! I saw the door opened and was just going to close it for you.
+Liar! You were leaning in looking in. Your hand was nowhere near the door handle.
+I’m sorry! I don’t know what got over me!
+Guess you were hoping to see what Anne might look like when she gets older.
+Yeah! Exactly, that’s what I was doing!
+Here's a quick look for you!
+You definitely look good!
+For an older lady?
+For anyone! You have a great body!
+Flattery will get you far my boy!
+That was interesting!
+You make eggs and bacon for breakfast then join Anne and her mom.
+What are the plans for today?
+I was wanting to show mom the neighbourhood and introduce her to Phil. And you? What are your plans?
+Don’t really have any. Might go to the gym, I honestly don’t know yet!
+Anne and her mom leave for the day!
+*What should I do? Should I go to the gym or....?*
+*Shit! It's really dead in here.*
+*Lucky me! Only 3 people in the gym are 3 hot girls.*
+You begin your workout as you enjoy the view of the ladies near you!
+Shit! She is cute!
+She turns and smiles at you
+Then quickly grabs her things and leaves.
+You also see the other two girls leaving!
+*Fuck! They're all leaving. Guess that's my cue to leave to.*
+You head back home!
+You spend the rest of the day doing fuck all!
+And end up falling asleep.
+You spend the day doing fuck all but watching tv.
+And end up falling asleep.
+Meanwhile.......
+This is where I run almost every morning.
+You sure it’s safe to be out here that early in the morning?
+Of course mom!
+Oh that’s Phil over there on the bench!
+Not at all how I pictured him, he’s a little older than I thought he’d be!
+I described him to you as best I could. You’ll like him, he’s a total sweetheart!
+Well I can see where Anne gets her beauty from!
+Mom, this is Phil and Phil, this is my mom Josie!
+Pleasure to meet you Phil!
+Likewise, Anne has spoken highly of you.
+They spend the better part of an hour making small talk and getting to know each other.
+Why don’t we go to my apartment and continue this over wine!
+Great idea!
+I’ll be right back, just gonna check on %(t)s.
+Ok dear!
+Just walk in when you come back, no need to knock!
+Thanks Phil!
+Anne goes home!
+*Guess he decided to just relax today!*
+Anne heads back to Phil's apartment.
+So? How's it going?
+He’s so nice!
+I told you he was!
+He’s a little older than I thought he would be but super sweet. I think I’m gonna spend the night with him.
+Seriously? I didn’t see that coming.
+Ya I need to have a little fun too, it’s been years.
+Okay then, I’ll just head back to the apartment and leave you alone with him.
+Thanks Anne, I’ll see you in the morning.
+See you in the morning mom!
+Anne returns home and you wake up as she walks in this time.
+Oh shit! What time is it?
+It’s 7pm, you’ve slept the day away!
+Oh shit! I must have needed it, what have you been up to? Where’s your mom?
+I showed mom around the neighbourhood and ran in to Phil at the park where I run in the morning.
+Don’t tell me she’s at Phil’s place?
+Yep! She is! And she said she’s spending the night with him.
+Oh my god! Your mom’s a slut! Haha!
+Babe! Don't say that!
+This day is written off for me so I’m just gonna go to bed!
+Ya, That sounds like a great idea before this busy week I have coming up.
+Busy week? You’re off all week!
+Haha! I know, I have it rough!
+You and Anne go to bed!
+There’s something I've been meaning to tell you all weekend but didn’t get the chance to.
+What’s that?
+Anne moves her hand to your cock.
+Ooh! I like where this is going?
+Remember Drake? The guy I told you about from the beach?
+Yeah?
+He invited me to go with him to the spa that his friend is co-owner of.
+Ok, so you went to the spa!
+That’s not what I’m getting at! Just listen!{p}So Drake and I are ready for our massage and his friend the co-owner walks in and you’ll never guess who it is!
+Who?
+Troy! The couple who’s house went to last week!
+Chloe's Troy? The Troy who got your panties?
+Yeah, that Troy!
+So what happened?
+Troy massaged me but the good stuff that I’m sure you want to hear about happened in the hot tub afterwards!
+Yes! That’s what I want!
+You close your eyes as Anne strokes your cock and you begin picturing what Anne is describing!
+I was just resting in the hottub when Drake came and joined me.
+When I saw him coming in I stood up in front of him and grabbed his cock as he kissed me hard!
+He was so hard within seconds babe! He told me that he wanted to taste my pussy.
+I sat on the edge of the hottub and he licked and sucked my clit
+It felt so good babe! He then stuck his fingers in my asshole! and fucked me with them.
+In your asshole?
+OH God yess babe it felt so good to have his fingers fucking my ass!
+I came so hard all over his face!
+I returned the favor and sucked his big hard cock!
+Did you like sucking his big cock baby!
+Oh fuck did I ever. I loved the way he fucked my mouth and throat!
+I could feel him starting to tense up, I was ready for him to blow in my mouth{p}But thats when he pulled his cock out of my mouth and picked me up then tossed me on the edge of the tub and started licking my asshole!
+God babe! I wish I could describe the feeling. I was in total ecstacy!
+His tongue was fucking my ass so good! I came a second time!
+Then from behind, holding one of my legs he fucked my ass with that big cock!
+He stretched my asshole to new limits, but I wanted more! I wanted him deeper babe!
+I played with my clit as he continued to fuck my ass!
+I came for a third time with his cock in my ass and me fingering my soaked pussy!
+Then he picked up again and laid me on the edge of the tub with one leg over his shoulder with is cock never leaving my ass!
+He held my face and fucked my mouth with his thumb, which I sucked on for him!
+I then bent over as he began furiously fucking my ass!
+Again i was in total ecstacy and lustful bliss! I never wanted to not feel his cock in my ass!
+I want to watch him fucking your ass like this baby!
+Oh you will babe! You will! I want you to watch his big cock fuck my ass!
+Oh god babe! I'm getting really close!
+Just a few more seconds babe! Hold it as he's now fucking me harder and faster!
+I felt his cock swell inside my ass as he began to shoot his load deep inside me!
+OH FUCKK BABE! YESSSSSSS OH GODDDDD YESSSSSS!
+I came so hard to for the forth time from Drake babe! He made me cum four times!
+OH FUCK! I want to see you cum on his cock!
+And then you would clean me up?
+Oh fuck you know I would baby! You know I would!
+I would love that!
+Me too!
+What a great way to end the week, you’re the best baby!
+Thanks babe! But you make me who I am!
+We make each other better!
+We sure do!
+Good night beautiful, I love you!
+Good night! I love you too babe!
+Anne moves her hand to your cock.
+So does my husband want to end this week with a bang and fuck his wife?
+You don’t say a word and just roll over and begin making out with your horny wife.
+Get inside me babe! I want to feel you inside me!
+Yessss! That's what I wanted!
+OH GOD YESSSSS! OH GOD I LOVE YOU INSIDE ME!
+OH SHIT BABY I'M GONNA CUMMMM!
+ME TOOOOO!
+YESSSS OH FUCK YESSSS! SO GOOOOOOD!
+You roll off of Anne as she leans over you!
+That was quick but fuck was it good!
+What a great way to end the week, you’re the best baby!
+Thanks babe! But you make me who I am!
+We make each other better!
+We sure do!
+Good night beautiful, I love you!
+Good night! I love you too babe!
+Compliment her dress!
+Go to the Diner!
+Join Tiffany for lunch.
+Take usual spot!
+Eat at desk!
+Carry her to bed!
+Get a quick grab of her ass first!
+Lunch at the Diner!
+Lunch at home!
+Agree to go with Shannon!
+Accept her invitation!
+Decline her invitation
+Just trying to enjoy the sun alone!
+Flirt back with him!
+Try anal!
+Don't try!
+I would love that!
+I don't think so baby!
+Go home for lunch.
+Shannon
+Mia
+Zarah
+Nobody comes to my mind. I need to find one
+Take a peek!
+Don't peek!
+Yes we will be there.
+No, sorry we can’t make it!
+Yes of course!
+No, not really feeling it!
+Excuse yourself to keep watching Anne.
+Spend a little time with Mia!
+Stay with new friend!
+Go see what %(t)s is up to.
+Peek!
+Stay home and lounge!
