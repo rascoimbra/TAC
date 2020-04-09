@@ -1,649 +1,1073 @@
-The early morning light illuminates a young couple lying in bed, both sleeping soundly.
-The silence of the apartment is interrupted at exactly 6:00 AM.
-The alarm only blares for a few seconds before it jolts Jessica O'Neil out of her sleep.
-She glances at the arm of the man beside her and shuts off the alarm.
-Nothing wakes Conner up. He once told me he slept through a mortar attack in Afghanistan.
-...
-I missed him so much while he was deployed. It feels like a dream that he is finally back with me in one piece.
-ZzzzzzzzZZzz
-He's so cute when he's snoring. I want to curl up next to him and spend all day in bed, but I'd better take a shower.
-Today I start my new job as junior reporter at the New Port Gazette. I could barely sleep I was so excited about my first day.
-Jessica slips out of her panties and steps into the shower.
-The warm water pours over her ample curves as she washes herself with the exfoliating sponge.
-The bathroom fills with steam as she lathers her breasts and between her toned thighs.
-Her fingers stroke the delicate folds of her pussy.
-I'm so wound up about this first day. Maybe I should release a little tension.
-She plays with her thick, sensitive nipples, gasping softly in the rush of water as her fingers tighten around her tender buds.
-Her hands trail from the soft mounds of her breasts down her toned tummy.
-Her nimble fingers massage her aching groove and rub at her clit.
-Oh god, he touched me like this last night, when he came back home. He kissed me like when we first started dating.
-His hand slid into my panties as he kissed me. And then he took me up against the wall.
-She leans back, pressing herself against the steamy shower wall and fucking herself with two fingers.
-Her breasts heave with her lust and her pussy aches with her need to cum.
-Oh, Conner…
-Her soft cries of pleasure echo in the shower. She thrusts her hips and fucks herself faster and faster.
-Her pleasure builds as she plunges her fingers into her hungry channel, but Jessica stops short of an orgasm.
-Conner.
-I need to wake up Conner. I can have a little fun with him before work. I've missed him so much.
-Jessica lets out an excited breath and steps out of the shower. Her thighs are shaking with desire as she quickly runs the towel over the shapely body, hastily drying her soaking skin..
-Eager to be back with Conner, she wipes away herself down but leaves her hair moist, unwilling to wait.
-Once mostly dry, she slips into her silk robe, hastily returning to the bedroom.
-Jessica's body burns with lust for Conner as she crawls into bed next to him.
-Wake up, sweetie.
-ZZzzzz...
-C'mon, sleepyhead. You told me to get you up before I leave for work.
-...
-Conner rolls onto his back and pulling the blanket off of him Jessica sees his erection sticking up in the front of his shorts.
-Oh, my… somebody is having a good dream…
-She runs her hand over Conner's shorts and feels his rigid manhood swelling within.
-Oh, I've missed having my big boy home.
-She reaches inside his boxers and takes hold of her boyfriend's hard cock.
-At least one soldier is standing at attention.
-Her pulse quickens as she feels his familiar hardness in her grasp.
-I went so long without him, I can't resist him now.
-Almost without a conscious thought, Jessica's hand begins to move from Conner's root to his swollen tip.
-I'm sure he won't mind if I wake him up like this.
-Jessica's heart swells as her hand works over her boyfriend's rigid manhood, a warmth stirring within her loins.
-He's so hard I can feel his heart beating in his cock.
-Conner groans softly in his sleep, but does not wake as she continues to stroke his throbbing manhood. He's still asleep...
-He wasn't kidding. A soldier really can sleep through anything.
-I'll have to resort to something a little more intense to wake him up.
-What should I do?
-Oh, god, I need to have him inside me…
-I know just the way to wake him up…
-Jessica rarely performs oral sex on her boyfriend, but she knows he likes it.
-As she strokes his hardness, she leans her head down to his cock and begins licking the fat tip.
-She knows the spot that drives him crazy just underneath his cockhead.
-Zzzz...
-Hmmm, still sleeping?
-Guess I will have to try a little harder.
-She takes his stiff cock into her mouth, sliding her full lips over his cockhead as her tongue cradles the underside of his length.
-Oh god, yes! Having his cock in my mouth is making me so hot.
-She gags a bit on her first try.
-I'm not used to this… but I'm not giving up.
-She can't take all of his hard cock, so she uses her hand at the base as she begins to bob and slurp on her boyfriend's hot meat.
-Mmmm?
-Her spit soaks his shaft and drips from his balls as she works her hot mouth up and down Conner's fat cock.
-I feel like such a dirty slut! I love it!
-Mmmmmm…
-Her moan of pleasure vibrates around his shaft.
-Wha…??
-He finally stirs, groggily lifting his head to find his beautiful girlfriend eagerly blowing his hard cock.
-Baby… ohhh god… that's so good.
-What are you… what are you doing?
-What does it look like I'm doing, silly?
-Giving you a blowjob! Good morning!
-Ohhh fuck...
-Jessica's mouth descends wantonly on his hard dick.
-She bobs up and down on the thick piston of his cock, her spit soaking down his shaft as her fist pumps his root.
-Conner thrusts gently into her grasp, fucking her mouth as much as Jessica will permit.
-I love blowing someone who actually responds. His dick is so much better than the dildos that kept me company while he was gone.
-Jessica revels in the eroticism of the moment, overjoyed to have Conner ready to fill her with his love.
-Mmmmmm! I can taste his precum!
-Her pleasure grows with Conner's and she begins to play with her clit as she sucks his cock.
-That's so good. You’re going to make me cum if you don't stop.
-I usually don't let him cum in my mouth… but I can't stop myself.
-Baby, did you hear me?
-She looks up at him, begging with her moans and lusty eyes to cum into her mouth.
-Aahhhhhhhh fuck!
-Oh god, I'm going to cum too!
-Conner's cock throbs and spurts out hot, salty gushes of cum into Jessica's mouth.
-The hot spurting of his cum into her mouth drives Jessica over the edge.
-Oh my god! Yesss!
-As she sucks out his load, she swallows and cums against her fingers, her hips bucking and her fingers pumping lewdly in and out of her soaking pussy.
-Oh, sweetie, you are amazing!
-I can't believe I swallowed it all…
-Gasping, she releases his cock from the heat of her mouth, dragging her body over his before collapsing beside him on the bed.
-Jessica straddles her boyfriend, stroking his hardness against the slick furrow of her cunt.
-Yessss…
-Conner is still asleep as his beautiful girlfriend grinds her velvet lips against his cock.
-Ohhhh...
-Baby, you feel so good. I've really missed this dick.
-She rubs her clit against the underside of his cock, spreading her slick nectar along his shaft.
-He's so hard. I have to feel that big dick now!
-He awakens to the sensation of her hot channel engulfing his upright cock.
-Oh, Jessica, what are you…
-Baby, I couldn't resist.
-Jessica cannot control herself. She slides down onto him, his hard cock spreading her delicate folds and stretching the tight channel of her pussy.
-MMmmmm! Oh, it's so good!
-He awakens to the sensation of her hot channel engulfing his upright cock.
-Oh, Jessica, what are you…
-Baby, I couldn't resist.
-Jessica cannot control herself. She slides down onto him, his hard cock spreading her delicate folds and stretching the tight channel of her pussy.
-MMmmmm! Oh, it's so good!
-Jessica slips her robe off her shoulders, fully revealing her luscious body to him.
-So sexy...
-I can feel his cock twitching inside me.
-She begins to ride atop him, her hands exploring his muscular chest and her soft mounds heaving.
-Oh, fuck, now this is a nice wakeup call.
-Conner takes hold of Jessica's shapely hips and kneads her round ass.
-He watches her body move atop him and soaks in the warmth of her velvet cunt swallowing his cock.
-I had to have this big cock!
-Oh, yeah? You like my big dick?
-She throws back her head and rides urgently atop him. Her clutching channel sliding over every inch of his steely cock.
-All their time apart melts away in her mind, Jessica feeling as he never left.
-Yesss! Fuck me! Don't hold back!
-Conner silently nods, his eyes glued to his beautiful girlfriend's body rising and falling.
-He lets himself loose, slamming his cock upwards, impaling her tight pussy on his manhood and making her bounce atop him.
-Their pleasure rises together. Jessica's shapely body responds to each of Conner's thrusts.
-Jessica’s cries of pleasure fill the room, Conner groaning as he feels his own orgasm approaching.
-Her hips twitch and she bucks atop him, her breasts shaking with the movement of her body.
-Pleasure blossoms within the buxom woman, the joy of her boyfriend filling her swelling inside.
-I'm cumming! Oh, Conner, I’m cumming!
-He can feel her pussy squeezing him tightly and he cannot resist.
-Oh, baby, I can't hold out any longer!
-Cum inside me! Yesss!
-With a last roar, Conner explodes deep inside her!
-I can feel it shooting his load inside me!
-Jessica rides atop him, draining every drop from his throbbing cock as her orgasm ripples through her creamy pussy.
-Her cum-filled pussy makes soft, lewd sounds sliding over Conner's spent manhood.
-Oh, Conner, that was so hot…
-Jessica leans her soft body against him and kisses him, their tongues meeting in a moaning embrace.
-You're telling me, baby.
-Their pleasure spent, they collapse together on the bed.
-Jessica can feel Conner's silky cum trickling out of her freshly-fucked folds.
-They share a long kiss, bodies pressed together and hot with the flush of sex, languid in the afterglow of their pleasure.
-Conner strokes a lock of Jessica's hair from her face and gazes deeply into her eyes.
-What prompted that?
-A little bit of good luck fun, I guess.
-You don't need luck, baby, the paper is lucky to have you.
-I guess I just can't get enough of you now that you’re home. Sometimes I want to pinch you to be sure you're real.
-It feels like a dream sometimes.
-Like I'm still there in Afghanistan.
-I know it's hard, honey, but the work you’re doing here is good.
-Yeah, I know. If only Wounded Warriors United paid a little better…
-We'll get by and I’ll break some big story and get a promotion.
-Until then… I'm happy with ramen and dates where we walk in the park.
-Yeah?
-Yeah, as long as I have you with me.
-You keep waking me up like that and you'll have me forever!
-Haha, no promises, stud!
-Now enough cuddling, I need to get ready for work.
-Got your outfit all picked out?
-You know I like to plan ahead.
-I've got something understated in mind, but that’ll still catch the eye. Classy, but pretty.
-She lifts herself from the bed and lets her robe slide down her shoulders.
-Hey, you should wear that lucky necklace I got you when we went to Hawaii.
-Good idea, honey! It'll be like you’re right there with me all day.
-Jessica climbs out of bed and crosses to the dresser where she left her necklace.
-The beautiful gold heart hangs against the soft swell of her cleavage.
-She models it nude for Conner.
-So sexy. But you'd better get ready to go, babe.
-Jessica realizes she barely has enough time to get to the office.
-Shit! You're right!
-I still feel dirty from what we just did, but there's no time to for another shower.
-She cleans up and put on her makeup as quickly as she can. She slips into her panties and buckles her bra as Conner watches from the bed.
-Her hair is another story. It's still damp from the shower and she has to blow dry it while she is doing her lipstick.
-Conner is amused by his beautiful girlfriend's ambidextrous rush to make herself ready.
-I don't know how you girls manage that.
-We {b}women{/b} get used to it.
-Well practice makes perfect. You look smoking hot.
-Jessica slips her feet into her heels.
-Not the way I was planning to start my day.
-Knock ‘em dead, baby.
-Conner, still unashamedly naked, stands and embraces Jessica.
-She shoves him playfully away before he makes a mess of her office attire.
-No, you've had enough of me this morning.
-I’ll never have enough of you, baby.
-See you tonight!
-Right. We have to celebrate your first day!
-No getting drunk though.
-A little bit drunk.
-They share a kiss and he sees her out the door.
-A last glance at the time on her phone and she is jolted with adrenaline.
-I am going to have to drive like hell to get there on time.
-Jessica rushes out of the apartment. As she is heading outside, she almost literally bumps into an attractive couple exiting the apartment next door to hers.
-She greets HEATHER STEEL and CHRISTIAN STEEL with a hurried smile.
-Oh, Jessica! You look so beautiful today!
-Very nice.
-Thanks! First day on the job and I'm trying to make a good impression.
-If they have eyes, they're going to love you.
-Heather and Christian are sweet, but they both give me funny looks every time I talk to them.
-It's no different today. Heather is looking Jessica over and Christian is doing some outright ogling.
-Would you like to join us for breakfast?
-Invite the beau! The war hero!
-I'll have to take a raincheck on that. I'm in a rush.
-We'll hold you to that!
-Have a nice day, Jess. See you tomorrow for the jog.
-Thanks. Bye!
-Jessica brushes past them and hurries to her scooter.
-Okay, little fireball. Let's do this.
-She speeds off into the downtown traffic, weaving through tight spots and doing everything she can not to be late.
-Jessica drives past a familiar newsstand. The elderly man behind the counter is MR. PARKER, an old acquaintance and ex-reporter Jessica respects deeply.
-He sees Jessica on her scooter and waves to her.
-Hey, Mr. Parker!
-He has been in this part of the neighborhood for as long as I can remember.
-Sometimes I think he lives inside that little stand when the shutters it for the night.
-Lookin' forward to your first byline, Little Miss Reporter!
-Probably not on my first day!
-Do your best and it may as well happen!
-Jessica smiles back at him and continues her ride.
-She rides past the newsstand and continues downtown to the towering edifice of the New Port Gazette.
-Well, girl, let's climb this mountain.
-Without wasting any more time she rushes into the lobby and the elevators.
-A young, attractive woman with dark hair sits behind the reception desk of the 14th floor.
-Hi, um, Jessica O'Neil.
-I know, Miss O’Neil. Head on through to the offices.
-I'm not late, am I?
-...
-Oh, no! She just made a face when I asked that.
-I am late! On my first day!
-Mr. Birch likes to start the Monday meetings early.
-You can go on back to the conference room, the last door on the left.
-Jessica opens the door and sees the executive editor of the New Port Gazette, Mr. Birch, speaking to few journalists.
-She nervously enters the conference room, trying not to disturb them too much.
-A voluptuous middle-aged Latina (ROSA JIMENEZ), a handsome early middle-aged black man (DUNCAN ADAMS),
-a beautiful young woman who looks to be about the same age as Jessica (EVE BEAULIEU), and a pudgy young man wearing glasses (JERRY KRUGER) are all listening to MR. BIRCH speak.
-Mr. Birch gives Jessica the gimlet eye as she takes a seat at the table.
-A few of the other reporters glance in her direction.
-Oh god! This is not how I wanted to make my entrance.
-Before she can apologize, Mr. Birch continues with what he was saying.
-I'm not interested in the criminal aspect, Duncan.
-That's second page, below the fold stuff.
-I am more interested in the vigilante aspect.
-There is mystery there - \"Who is behind the mask?\"
-A lunatic, who is going to get himself killed.
-That's who. Isn't it obvious?
-They're taking about that guy going around beating up criminals. He showed up a month ago, stopping a warehouse heist. The police found the robbers tied and bloodied inside the place.
-He's been seen a couple more times preventing small crime and helping people. Ever since then he has become the talk of the city and the media are all too happy to embrace the story.
-It does sound kind of dangerous. Even if this guy is doing good things, he's putting his life on the line.
-I think he's cute.
-Cute?
-How can you tell? We have blurry pictures from security cameras and one screen grab from a cell phone video.
-Jessica's eyes turn to the older woman on the other side of the table, taking in the lady's relaxed demeanor and attentive eyes.
-Well, this town needs a guy like that - one who can bust heads.
-An armed vigilante beating people up is great...
-For us. For the news business.
-For New Port City? I don't think so.
-I can follow the crime in the city, I can't follow one masked vigilante.
-If he shows up, I can try to tell the story you want me to tell.
-But this tabloid crap, I don't like it.
-You’re not paid to like it, Duncan.
-Do these two usually go at it like this? Are most meetings going to go this way?
-This crimewave is the worst in 20 years. Someone or something is behind this. The vigilante is just a by-product.
-You're not going all chemtrails on me, are you Duncan?
-Whatever it is, we'll get to the bottom of it by digging into the crime in the city. Not by following this guy's \"heroic\" adventures.
-Huh. What about you, young lady?
-Mr. Birch seems to be looking at Jessica.
-Before she can answer, the other young woman in the room leans forward and speaks with a pronounced French accent.
-If the police addresses the crime, there is no need for a vigilante.
-I think there is corruption, inside the police force. They do not do their jobs.
-Wow. That... is one sexy accent.
-That's the sort of accusation that is going to burn a lot of my sources.
-Right. Well, the cops are dirty as mud wrestlin' pigs, but I can’t put that on the front page with this maniac running around.
-She's right, though. If things are so bad that we need a masked nut running around doing the police's job for them, something is definitely wrong with our law enforcement.
-Mr. Birch looks directly at Jessica.
-How about you, miss O'Neil?
-Dazzle me with your insight. Who do you side with on this one?
-Great! My first words and I'm gonna piss someone off.
-Who should I agree with?
-Well, every city has crime, right? Even crimewaves. But a masked vigilante is something new.
-It's called Batman. Or Daredevil. People see it on the screen and then go out and imitate it.
-I've heard of it happening before, but those people are usually disturbed, living out fantasies. This guy… he's actually stopping criminals.
-People want to know him. Who is he? How long has he been here? What motivates him to risk his life?
-If we can tell his story and inspire people to be better, then that's what we should do.
-Watch yourself, Duncan. I may give her your office soon.
-Um, there is something unusual about the crime in the city.
-See?
-What do you mean, Miss O'Neil?
-A mix of violent street level crime and these big heists. But domestic crime is unchanged.
-Yeah, I saw the pattern too.
-You're wrong. Both of you. Part of my job is knowing when to tell my reporters they're wrong. And part of their job is listening to me.
-Mr. Birch is angry, but Duncan favors Jessica with the slightest nod of acknowledgement.
-A crimewave like this doesn't just start in a vacuum.
-A lack of police attention and political willpower to confront this problem is what allowed it to happen. And there are some reports of the police acting unusually slow.
-Maybe you and Eve are right, but it's a story that is difficult to follow.
-And one we don't have the resources to pursue at this time.
-Sure. It's my first day. You just asked my opinion.
-Right. And now I have it.
-Jessica smiles nervously and glances around the table.
-Eve meets her gaze and mouths the words \"Thank you.\"
-The meeting continues and Mr. Birch moves on to assigning various stories to the reporters.
-Jessica notices that Rosa seems to work the City Hall beat and Eve is helping her.
-Duncan reluctantly agrees to pursue the vigilante story among several other stories he is working on.
-What about my assignment?
-Anything else? Rosa?
-We had that job shadow kid from the high school coming Wednesday through Friday.
-Ugh. Three days of him?
-You agreed to it.
-I blame you for not stopping me.
-Don't look at me! I don’t have time for a kid!
-You handle it, Rosa.
-Got it.
-Um, Mr. Birch…
-Oh, right. You need an assignment.
-Yes, thank you.
-Rosa will show you around the office and figure out something for you to do today. Once you're settled in, come see me.
-Yes, of course, thank you for this opportunity.
-I appreciate the positive attitude. I'll try not to crush it out of you too quickly.
-The meeting ends and Jessica follows Rosa to the offices for a tour.
-Don't let Mr. Birch intimidate you. Deep down, he’s a softy.
-He reminds me of my grandfather.
-Is that good?
-No. He was the \"go get my belt\" type of grandpa.
-Well, he hasn't hit anyone. Although he has come close to blows with Duncan before.
-Yeah, I noticed some tension during the briefing.
-You'll get used to it, don’t worry.
-Duncan will want to talk to you when we get you settled. His office is right over there.
-Rosa points to Duncan's closed office door and enters the work area.
-Eve is sitting here, I'm across the way right there.
-As you can see, we have plenty of spare room here.
-Few colleagues got axed due to budget cuts and the rest were transferred to national.
-Local investigations are not in high demand, what with all the material coming from DC lately.
-Thankfully, the new owners decided to get us some manpower. Hence, you and Eve.
-They approach a small cubicle, identical to the others. There isn't much room and the desk is already piled with papers.
-And here is your desk. What do you think? Wonderful, right?
-It's… good.
-I’m just messing with you. I know it’s a little small.
-No, it really is fine. And I'll work hard to get an upgrade. Maybe two cubicles!
-Rosa gave a chuckle, nodding.
-Hmmmm. You're not set up on the computer, right?
-No, I just arrived. Late, on my first day...
-Don't worry about it. Let me see if Jerry is still here, he’ll give us a hand.
-Is he the IT guy?
-Oh, I wish. We outsource all that to some company in India. There are barely any tech guys left in the whole building.
-Jerry is from the new administration. That's why he is upstairs on the management level. But he is good with computers and helps out with stuff.
-Rosa departs. While she is gone, Eve approaches confidently.
-Thank you for agreeing with me in there.
-Ah, you seemed right about it.
-Oui, but you stuck your neck out for me. So I appreciate it.
-Jessica O'Neil, right?
-All me.
-Eve offers Jessica her hand.
-Eve Beaulieu.
-A pleasure to meet you, Eve.
-I would welcome you here, only… it seems odd for me. I am new also.
-How new?
-This is my second week.
-Ah.
-They told me during the interviewing process they had narrowed it down to two people. They must have hired us both.
-What does that mean for my job here?
-We must be on our toes. I am thinking we maybe compete for the same job.
-That's great.
-Thanks for the heads up, Eve.
-Is only fair. I will win and keep this job.
-Eve turns and struts back to her desk. She has all the confidence of a runway model.
-Why couldn't she at least be dumpy looking?
-As if on cue, Rosa returns with the dumpiest-looking man in the office.
-Jerry fidgets nervously and tries to smile.
-You must be Jerry.
-Yeah, uh, pleased to meet you, uh, Miss O'Neil.
-Just Jessica, please. Can you help me get on the computer?
-Y-yeah, sure. As long as you're in the system, I can figure it out.
-Jerry sits down at Jessica's desk and begins opening windows and clicking through settings faster than she can understand.
-I'll leave you two to it. When you’re set up, go knock on Duncan’s door. He’ll want to give you the new reporter talk.
-Thanks for showing me around.
-Rosa departs. Jessica watches Jerry working on the computer for a few minutes, but quickly grows bored.
-Hey, Jerry, how long do you think this is going to take?
-Um, no more than fifteen minutes.
-Jessica glances at Eve, already diligently at work on something.
-You can handle this without me, right?
-Sure thing, Jessica. I'll leave a note on your desk with the info.
-Thanks, you’re a peach.
-Jerry goes a bit red in the face at the compliment. He smiles and watches Jessica's shapely bottom as she walks away.
-Jessica heads over to Duncan's office and knocks on the door.
-Come on in.
-Duncan has the look of someone who is always in the middle of something and can only be interrupted.
-He motions to a chair as he continues reading his computer.
-This guy scared the crap out of me during the interviews.
-He seems like the sort of journalist I idolized when I was in journalism school.
-Am I up to his level?
-It was nice to see someone else standing up to Birch.
-I hope you weren't trying to butter me up.
-Your argument was the most persuasive. Crime is the story.
-Someone is behind what is happening in this city.
-I am convinced that there is an agenda here to create disruptions with street level crimes to allow for high-end theft.
-The pattern is there in the numbers and our job needs to be to figure out who the person is and why they are doing it.
-Not get bogged down in Birch's vigilante story.
-He remained silent for a few moments before changing the subject.
-As you know, I'm Duncan Adams. Senior reporter, responsible for the local investigative branch of New Port Gazette. And you'll be working under my direct supervision.
-It’s a privilege, sir.
-As you can see, the team is small. But we're focused, New Port and the immediate surroundings.
-If you get your hands on something beyond that area it'll most probably be taken from you and assigned to national.
-Not because they are better than you, but because we want you concentrated on the issues of the city.
+DAY 9
+Mmm, Mr. Hammond, I want some ice-cream too.
+Hmm? Oh.
+Jessica yawns, but stops herself from stretching since it seems like Conner's still sleeping.
+He must be pretty tired. He was out late, after all.
+Might as well let him sleep.
+I'd wait for him to wake up, but I've gotta get moving.
+Jessica starts getting ready for her jog with Heather, going through her morning routine.
+Her thoughts turn to her pending visit with her old high school.
+It's gonna be weird to see the old alma mater.
+I wonder how much has changed.
+I wonder if Principal Sheers is still in charge.
+After getting dressed, Jessica heads over to the bed.
+Hey, sweetie?
+Mmm. Mmm?
+I'm going on a run with Heather.
+‘Kay.
+You should get up or you'll be late.
+Nah, I have the morning free. Gonna sleep.
+Jessica nods to herself, then heads out.
+Jessica steps outside, the weather sunny, but cool.
+Heather is already out stretching.
+Hey, sweetie.
+Hey, Heather. You're looking wonderful today.
+She's always beautiful. Small wonder she has such a hold on me.
+Why, thank you. Shall we get going?
+Sure thing.
+By the way, I hope Christian didn't bother you with his behavior last night.
+It's no problem. I'm a big girl.
+The two start their jog, chatting casually as they go.
+Their conversation quickly turns to work.
+So, how are things going at your job?
+Pretty good, actually. I visited the mayor's office yesterday.
+Again? Ooh. You two are getting close.
+Are you sleeping with him?
+Heather!
+What? It was an honest question.
+No, I'm not sleeping with him. Why would even think that?
+You know. Man with power, a penchant for affairs with beautiful women, and you've met him twice.
+Just curious if you're… pumping him for information.
+Jessica shakes her head and laughs.
+No. I'm not pumping him… for information or anything else.
+Not that I haven't been having a little fun with him.
+Not that he hasn't glanced my way.
+We've just been discussing city affairs. I'm trying to establish a working relationship with city hall.
+Yeah, I'll bet you are.
+Oh my god, you're so bad!
+I know he wants to fuck you.
+Yeah, probably, but that's not going to happen.
+You could always let on that you'll consider it. If a woman can profit from a man thinking with his dick, we can often get ahead in life.
+Are you saying I should have an affair?
+Not necessarily, but it doesn't hurt to lead him on a little. Men can be very cooperative if they think they can get into your panties.
+You just have to leave the door open, so to speak.
+So I should encourage him?
+Just don't cut him off completely. And if you can wiggle your tail his way, all the better.
+Have you done this?
+Of course. My boss was all over me when I first started, and I was happy to let him think I was available.
+For the first few months we were pretty close. I even let him get a little touchy.
+Jessica finds herself breathing just a bit faster, wondering what happened next.
+And by the time things went too far and I had to cut him off, I had connections and clients of my own, cases I was involved with. He couldn't just fire me anymore.
+So just teasing and flirting? No sex?
+Mmm-hmm. I mean, it's up to you to decide. Sex in the workplace is complicated, after all. Just make sure you have some leverage of your own, in case you need to put a stop to it.
+The conversation moves away from sex and more toward Heather's own projects.
+Huh. I think we're getting close to Mr. Parker's newsstand.
+I should stop by real quick and see if he talked to that ex-cop friend of his.
+Would you mind if we take a quick detour? I'd like to say hi to someone I know.
+Sure. Whatever works for you.
+The pair arrive at Mr. Parker's newsstand, Jessica knocking before inviting herself inside.
+Hey there.
+Jessica! Hello! Come on in!
+Jessica gives him a hug and a kiss.
+How are you today?
+Good. Just getting things ready.
+Please behave in front of Heather. We don't need to give her ideas.
+Who's your friend.
+Mr. Parker, this is Heather. Heather, Mr. Parker.
+Hello.
+A pleasure to meet you.
+Mr. Parker was one of the top journalists at the Gazette. Now he's my mentor.
+Ah, so you're Jessica's Obi-Wan?
+Ha! Kind of.
+Didn't you write that bit on the Trail murders?
+I did! I'm surprised you recognized my name.
+Well, I was on the defense team for one of the defendants in that case.
+So, thank you! You helped get my career started.
+He gives her a hearty laugh.
+You're very welcome!
+I just came by to ask if you'd had a chance to talk to your friend.
+I'm actually meeting him for a beer tonight. These things are always better face-to-face.
+You can come if you like. I'm sure he'd enjoy meeting you.
+That's not a bad idea, although it would be a little weird going out with two men.
+And given what I've been doing with him, that might be a little weird.
+It's just work, though. Conner would understand.
+Why not? It wouldn't hurt to meet the guy. Plus, an ex-cop could be a useful contact if I need to work the precinct again.
+Sure. That'll work.
+Great! I'll come by your place and pick you up so we can go together. Around eight sound good?
+Yeah, that's fine. I'll see you then.
+Have a nice day, ladies.
+Jessica and Heather start their run back, Heather chuckling once they get away from the newsstand.
+Wow, Jessica. I didn't know how much of a SLUT you were.
+Excuse me?
+A date with two men? And one of them old enough to be your grandpa? Mmm. You must want it bad, sweetie.
+This is not a date. It's work-related.
+Oh yeah? So Obi-Wan back there isn't going to show you his lightsaber?
+Jessica says nothing, suddenly very self-conscious.
+Hey, I'm not judging. I just told you to use your looks. Shake your thang, girl.
+Well, I have kind of felt his \"lightsaber\" already.
+Nah. A kind of 'date' with two men is just a little too weird for me, even if Mr. Parker's one of them.
+I'm sorry, Mr. Parker, but I already have plans for this evening.
+No worries, Jessica. I'll make sure the guy's willing to help out.
+Thank you so much.
+Alright, let's get going, Heather. Bye, Mr. Parker.
+Have a good day, ladies.
+Jessica and Heather start their run back, Heather chuckling once they get away from the newsstand.
+Well, that was kind of rude.
+What?
+Cutting the old man off when he was asking for a date.
+Jessica laughs.
+He's just a friend, Heather.
+You can do stuff with friends.
+We do.
+Jessica blushes, saying nothing.
+The two talk for a bit as they head inside, hand in hand.
+This was fun. We need to go running together more often.
+Any time I can spend with you is good.
+Heather squeezes Jessica's hand, making Jessica smile and look down at her feet.
+Okay, I better get a shower in before I head off to work.
+Before she can move off, Heather pushes her into the wall, bringing their lips close together.
+Heather! It's early! Someone might see.
+Mmm-hmm.
+Heedless, Heather plants her lips against Jessica's.
+The quiet sounds of kissing are thunderous in Jessica's ears, but she lets it go on regardless.
+This is stupid, but I just love being in her arms so much.
+They kiss for several long moments before Heather suddenly pulls away with one last peck on Jessica's mouth.
+Okay. You have a good day, sweetie.
+Heather heads off to her apartment, while Jessica slowly slinks into her own.
+After a quick, and cold shower to forget about Heather, Jessica gets dressed for work.
+The two talk for a bit as they head inside.
+Alright, I'm gonna go get a shower in before I head to work.
+Me too. Have a good one, Jess.
+You too.
+After a quick shower, Jessica gets dressed for work.
+She picks out a particularly lacy set of underwear, wanting to feel as sexy as possible even on a casual work day
+As she's attaching her garter straps, Conner stirs on the bed.
+His eyes open, and after a moment he smiles.
+Now THAT'S a sight to wake up to.
+He starts to reach over to her leg, but she bats him away.
+Sorry, Mister. You slept too long. I've got to get to work.
+Hell of an outfit for work. You have a second job I don't know about?
+She snorts.
+Shut up. So, how did things go last night?
+Not bad. I found my friend in a bar. Sat with him a while, then took him home.
+Was he drunk?
+Nah. He didn't fall off the wagon. Close call, though. If I hadn't gone, I don't know what would've happened.
+Glad to hear it.
+Jessica finishes putting on her clothes. After a quick goodbye, she heads out.
+After checking directions one last time, she hops on her scooter and drives off, heading toward her old high school.
+This is gonna be fun! I wonder if Mrs. Prichstein is still there. God, she was such a bitch.
+I miss sitting in the lunch room and making fun of her. Man, I was a bitch back then, too. Good times.
+Driving up, Jessica has a huge smile on her face.
+Wow! It's exactly the same! It's like time froze!
+Even the uniforms look exactly the same! I looked so damn cute in that little skirt!
+Inside, Jessica looks around with a grin.
+Mrs. Brubacher is still working here? Terrorizing students in the lobby instead of in Calculus now, I guess.
+Mrs. Brubacher?
+Yes? Can I help you?
+My name is Jessica O'Neil. I was a student here about eight years ago.
+I… think I remember. Weren't you on the school news team?
+Yes. For my junior and senior years.
+Of course. How are you, Ms. O'Neil? You've really grown up, haven't you?
+Well, thank you.
+What brings you by today?
+I'm actually working for the New Port Gazette. I have an appointment with the principal today.
+Of course. Head on over. You remember where it is?
+Jessica chuckles.
+Uh, sadly. I got called there a few times.
+The pair share a laugh before Jessica heads down the hall.
+The door is open when she arrives, so Jessica leans in and knocks.
+Yes?
+Principal Sheers? I'm Jessica O'Neil with the New Port Gazette. I have an appointment.
+The man gives her a warm smile and motions her inside.
+Of course! Please, come in. Go ahead and close the door, if you wouldn't mind. The students can get loud.
+Seeing him again after so long brings back pleasant memories to Jessica.
+I used to have such a huge crush on him. I always did have a thing for authority figures.
+After closing the door, Jessica strides over to the desk, shaking his hand.
+Jessica O'Neil. Did you use to go here?
+Yeah! I was class of 2010.
+Ha! When I saw your face, I thought you looked so familiar.
+Well, I did appear on school news every morning.
+Principal Sheers motions toward the chair, and she takes a seat, placing her purse down beside it.
+You've gone far since your days in the school news room. A reporter for a major newspaper. That's impressive.
+Thank you. It's a long way from making school announcements, but I kind of miss the old days.
+Lots of kids who didn't know a damn thing all trying to act like reporters.
+You and your team were good at it. You won quite a few awards, if I remember correctly. The only ones we've had that aren't sports trophies.
+The pair chat for a little while about Jessica's days at school.
+Well, Ms. O'Neil, what brings you here today?
+I was hoping you could help me with some documents I'm looking for.
+It's relating to the East Wing reconstruction Project from 2012.
+I'm confused. Those documents should be public record.
+Some of them are, but there's quite a lot that's been left out. We were hoping you could help us get the full records.
+Principal Sheers leans back in his seat, his relaxed demeanor going rigid.
+I'm sorry, Ms. O'Neil. I'd really like to help you, but I'm afraid those documents are confidential. To get them I'd have to make a request to the county office, and they'd have to agree to release them.
+It's extremely unlikely they would. They detest releasing documents to the press, and I would be putting my own career in jeopardy if I did so.
+Please, Principal Sheers. It would be an immense help, and I can guarantee we wouldn't reveal our source.
+I would be so very grateful for your assistance, sir.
+Despite working to make her voice soft and bat her eyes, the Principal seems unconvinced.
+I'm sorry. There's just nothing I can do. The school administration has become much stricter about these sort of things in recent years. I'd be risking my job.
+If we kept the documents here, I'd be more than happy to do you this favour.
+He goes on, talking about school and county policy.
+Jessica sighs and turns away, her eyes landing on the teacher's pointer lying at the end of his desk.
+Wow, he still has that, huh? He loves that thing.
+He used to terrorize us with it, threatening to spank us if we got out of line, \"just like the old days\".
+Not that he ever did. Corporal punishment isn't allowed here.
+You know, come to think of it, he used to threaten the female students with spanking a lot more than the boys.
+And he always did have a strange twinkle in his eyes when he threatened us, like he really wanted to do it.
+Her eyes move back to the Principal, who's still droning on.
+I wonder if he'd like to live that fantasy, maybe use that pointer on a young woman like me.
+Conner paddled my ass hard last night. I bet I could take a few swats with that thing.
+And it's not like it'll be sexual, for me anyway.
+Then again, maybe that's going too far. Asking a principal to spank his former student, just like he always wanted. Is that too much?
+Yeah, it's probably too far.
+Jessica heaves a weary sigh.
 I understand.
-...
-You did well for a couple of years in the newsroom at channel 9.
-I asked around. I know you worked on that story on Councilman Harding.
-I did some legwork, knocked on doors, I wasn’t managing the story.
-So why print? You were on a TV track, you have the looks for it. Why move to print?
-I felt like print is where the real stories were being told.
-Huh.
-Uh oh, I said something wrong.
-We’re not in the business of storytelling, Miss O'Neil.
-If that’s what you want to do, you should start a blog or something. Or make a documentary.
-We’re in the truth business.
-Right, I know, I just--
-Journalism programs are drilling multimedia and storytelling into the heads of all you journalism students.
-It’s bullshit. Leave that to the production team.
-We get the truth. We tell the truth.
+I'm sorry I couldn't do more for you.
+Well, thank you for your time, Mr. Sheers. I will leave you to your work.
+As Jessica stands up, the Principal walks around his desk and takes her hand.
+Well, it was a pleasure meeting you again, and I'm so glad to see one of our students working at the Gazette.
+It was nice speaking to you again, without the dread of having been called here from class.
+Hahaha! Yes, I imagine so. Again, I'm very sorry I couldn't help, but if you need anything in the future, don't hesitate to come by.
+I will. Thank you.
+Well, if it works, it works. Let's see how badly he wants to indulge his kink.
+Jessica stands up and moves toward him, teasing him with her stare and her body language.
+Her hand runs along the pointer as she goes.
+You know, Mr. Sheers, I remember getting called to this office a few times when I was a student.
+You loved to tell us, \"Bad girls should be spanked!\"
+She picks up the pointer and takes a seat on his desk, his eyes immediately drawn to her ass.
+I, uh… don't recall…
+Oh, but I do. My girlfriends and I were always so afraid that you'd spank us. Hard.
+Well, if I did, it was only to frighten you. So you'd behave.
+Were you tempted to do it? To give one of us bad girls a good ssspanking?
+Jessica lightly slaps the pointer onto her own hand for emphasis, and does it a few more times as she goes on.
+I bet you were thinking about the sound this made when it hit a young girl's tight, firm little bottom, and seeing it shake with the impact.
+Principal Sheers finally regains his composure, and straightens in his chair.
+I would never do that to a student.
+Of course you wouldn't. That would be wrong. But… what about an ex-student?
+He mumbles under his breath.
+What do you mean?
+Jessica turns around, presenting her ass.
+There's no longer any attempt to hide that he's looking at her backside.
+What if I said I've been a bad girl for a long time? What if I was just waiting for you to call me to your office for… proper discipline?
+I knew you wouldn't do it while I was a student, but I'm not a student anymore, though I'm still a very bad girl.
+Do you think the good spanking I've needed all these years will help me be a good girl?
+Sheers nods several times, his eyes glued to her bottom.
+Yes. Bad girls should be spanked. It'll make you good.
+He's breathing heavily, speaking in short bursts.
+I've got you, you pervy old man.
+Here.
+She places the pointer next to her bottom, and he takes it with a shaky hand.
+I was thinking, I'll come back tomorrow. If the documents I need are on your desk, I won't be able to help myself. I'll have to look at them.
+Because I'm a very bad girl.
+Yeah…
+And in that case, you could help properly discipline me with your… stick.
+Yeah. I would have to… punish you properly. And I will… if you do that.
+Okay. I think that's enough.
+Jessica turns around and straightens up.
+Well, I should be off for today. It was a pleasure to see you again, Mr. Sheers.
+It brought back some good memories.
+I'll be back tomorrow. If you've found those documents for me, I'd love to see your education methods.
+She grabs her purse and heads for the door, making sure to sway her ass as she goes.
+Uh, Ms. O'Neil!
+Hmm?
+Do you still have your cheerleading uniform?
+I think I have it somewhere.
+Uh, wear it here Friday after 5pm, and I'll have those documents for you.
+Jessica laughs as she leaves the office.
+Jessica's mind is working as she climbs onto her scooter, considering what she'll say at work.
+Well, Rosa should be happy I got him to agree to give me the documents.
+She won't be happy if she figures out HOW I did it. I should just keep that little tidbit to myself.
+And I have to admit, it was kind of fun.
+Well, Rosa will be disappointed I couldn't get the documents.
+She'd have disapproved of my idea for getting them, anyway.
+She's right, though. I really shouldn't be acting like a horny schoolgirl to get what I need.
+Besides, I now know where we can find them. That's something, at least.
+Back at the office, Jessica strides in to find an older woman sitting in Rosa's chair.
+Rosa herself is sitting on her desk, talking to the stranger.
+Hey, Rosa.
+Good morning, Jessica.
+Jessica turns to the strange woman.
+Good morning, Miss.
+Hello, Jessica..
+Oh, do you two know each other?
+We sort of met, but under… unusual circumstances.
+Jessica is surprised, both by the idea that they've met and by the woman's presence.
+She almost seems to control the space around her without moving an inch.
+I'm sorry. I don't really remember.
+Don't worry about it.
+This is the paper's CFO, Barbara Palmero.
+Barbara stands, pushing just enough into Jessica's persona space, making her take a step back.
+She extends her hand, Jessica taking it in greeting.
+A pleasure to meet you formally, Jessica.
+Likewise.
+Well, I need to get back to work. I'll speak to you later, ladies.
+Later, Barb.
+She seems nice.
+She can be.
+But I don't remember meeting her.
+Well, maybe Barb was wrong.
+Rosa chuckles.
+Because people who meet her don't usually forget it.
+She did seem kind of intimidating, didn't she?
+It's fairly normal for those with power.
+Only Birch is above her at the company, and it doesn't always look that way.
+I'll have to make sure I get on her good side, then.
+If you want a permanent position here, having a woman like her on your side would certainly help.
+But I think you already have it. I haven't usually seen Barb be so nice to anyone.
+But speaking of work, how did things go at the school?
+He seemed willing to help. I should be able to have the records on Friday.
+That's great! Get them to me as soon as you have them.
+She takes a look at the time.
+Excuse me. I have to talk to Duncan about a story.
+Sorry. Apparently they don't even keep the records there. They're at the county education offices.
+Alright. I appreciate the effort.
+I might be able to get them from those offices myself.
+She takes a look at the time.
+Anyway, I need to talk to Duncan about the story. Excuse me.
+Okay. I'm gonna get some research done on the vigilante story.
+Oh, one more thing. Mr. Birch wants to talk to you and Eve.
+When Eve gets back from her assignment, you two should go see him.
 Got it.
-And sometimes the truth is not as entertaining as the fiction and we have to work around the editor to do it, do you understand that?
-I-I think so. You have to get the truth out there even if he wants to make it about something else.
-Exactly.
-So it’s about the crime, even if you write the piece about the vigilante.
-But leave people wondering about the crime.
-Smart.
-Don’t try to flatter me.
-You’ve got a long way to go, but maybe we can make it work.
-I would love to dig in.
-Today you are going to dig into this.
-Duncan hands Jessica a thumb drive.
-Whatever you need.
-That’s for Rosa. You are going to be transcribing interviews for a story she is doing on the new stadium project.
-Bullshit! That’s intern work.
-I, um, sure.
-Jessica returns to her desk to find a note from Jerry. Her login is JONEIL and her password is FOXY0N3.
-Real cute.
-I’ll let it slide since he was helping me out.
-She puts on her earbuds, plugs the thumb drive into the computer, and gets to work transcribing audio interviews conducted by Rosa.
-It’s boring, tedious work. She’s relieved when Rosa stops by her cubicle.
-Hey, Mr. Birch is ready to see you.
-Should I be afraid?
-Nah. Don’t let him scare you.
-Rosa surprises Jessica with a pat on the ass as Jessica walks past.
-You’ll knock him out.
-Thanks...
-Jessica walks upstairs to the management floor of the office. She is surprised to see Jerry working in a big office next to Mr. Birch. He waves to her and she waves back.
-She hurries past, avoiding any conversation as she makes a beeline for Mr. Birch’s office.
-He’s waiting for her.
-Miss O’Neil, come on in. Close the door and have a seat.
-I hope Rosa showed you the ropes and Duncan wasn’t too hard on you.
-They were both very accommodating, Sir. I can’t wait to start working with them.
-You’re off to a good start, Jessica.
-You saw things my way back there in that meeting.
-And I can use more voices on my side in meetings like that.
-I think you were right, sir. I just spoke my mind.
-Let’s stay focused on that first part. The \"I think you were right\" part.
-Okay...
-Speaking your mind is overrated.
-Mr. Birch stands up from his desk and walks around to her side.
-Jessica can feel his eyes on her body.
-He’s old enough to be my father. Maybe even my grandfather. And he’s looking at me like a piece of meat.
-Young lady, I’m sure those professors and Duncan and whatever you were doing at Channel 9 put a lot of nonsense into your head about how important journalism is.
-But you’re at a newspaper now.
-This is a business and we’re barely clinging to relevance.
-I know the Internet has been hard on the newspapers.
-Yes. So my job as the editor here is to balance Duncan’s needs to win another Pulitzer with the owner’s need to make money.
-And that has gotten very difficult over the years.
-In fact, you and Miss Beaulieu are the first new hires we’ve had in over a year.
-Here it comes…
-And it’s going to be hard to justify two new reporters in the budget.
-I want to, mind you. Eve is very… well, she’s a talent. As are you.
-Thank you, sir.
-So I will give you the same advice I gave her: when I tell you something as the editor-in-chief, treat it like the word of god, because it comes from the owner as well.
-I will bend over backwards for you, sir.
-Oh?
-A smirk spreads across Mr. Birch’s face.
-Oh, no! What I just said sounded dirty.
-Bending over forward is good enough, Miss O’Neil.
-Did he just…?
-The way he’s staring at me, he definitely did.
-I need to think very carefully about how to react to this.
-Ha ha ha!
-It’s good to have someone around with a sense of humor.
-Rosa and Duncan never laugh at my jokes anymore.
-I try not to take anything too seriously.
-Anything?
-Uh, other than the job.
-Actually, I prefer to do my work from on top.
-Oh! Ha ha ha!
-I like that!
-Well, with that sort of attitude you may well go to the very top.
-The main thing I want you to know today, Miss O’Neil, is that you have my confidence and the hope that you will prove yourself a capable reporter.
-Thank you, Mr. Birch. This is a great opportunity and I will not let you down.
-Good. I’ll let you get back to work, Miss O’Neil. I’m sure Duncan and Rosa had already found something for you to do.
-Jessica returns to her cubicle, her heart still pounding from her meeting with Mr. Birch.
-She tries to put it out of her mind as she returns to transcribing Rosa’s interviews.
-On the audio, Rosa seems to be prying into a deal for a new baseball stadium in New Port City.
-Her questions lead Jessica to believe that some people on the council are receiving kickbacks from an unknown company for approving the stadium deal.
-*sigh* I can’t believe this is what they have me doing on my first day. I guess I shouldn’t be surprised, but it’s still kind of frustrating.
-Still, I have to admit, I do kind of like listening to Rosa. She’s a little fiery, and seems pretty good at drawing the truth from the people she’s talking to.
-Maybe this will be good for me. A little boring, but definitely good material if I want to interview people the way this woman does.
-I wonder if that was the point of giving me this assignment. Or was it just to give the new girl the crap work? Probably the latter.
-Oh well. I should just concentrate and keep going. I’ve got quite a few of these to finish.
-She still has hours more of transcription to complete by the time 5 o’clock rolls around.
-Hey, Jessica.
-Oh. Hey, Rosa. How’s it going?
-You’re not staying here all night and working on that.
-Come get a drink.
-Oh, thank you, but I can’t.
-I have to go home to my boyfriend.
-I understand. You'll tell me about him tomorrow. At lunch.
-It’s a date!
-It’s a date. What am I? Twelve?
-Jessica rides her scooter home and returns to her apartment. She isn’t surprised that Conner isn’t home from work yet.
-Ah, Conner, where are you? I could use your magic fingers on my shoulders right now.
-She changes into a more comfortable outfit and pours a glass of wine.
-I guess I’ll relax until he gets home. See if anything good is on.
-She sits down to watch some TV, but nothing’s capturing her attention. Her mind too busy with the day’s events.
-Some time passes and she receives a call from her sister, Laura.
-Hey, sis, how did the first day go?
-Rough. Boring. Good? I’m not sure.
-You’re a bad reporter if that’s the best you can do.
-Don’t say that. I feel like a bad reporter.
-I spent most of my day transcribing interviews and occasionally looking over at the girl who is going to get my job.
-Is she good looking?
-Uhh, yes, she is.
-I hate her already.
-Thanks…
-Cheer up, it’s your first day. It’ll get better.
-Listen, mom and I are going to be in town for the weekend. We should hang out and you can tell me all about it.
-A family therapy... I cannot wait.
-Tell me, how is our lovely mother?
-She’s good, you know mom, lots of work and no fun.
-Ahh…
-Actually, I think she’s dating someone.
-You think?
-You know how she is - she never tells. I think we were too harsh last time.
-With Lurch? Yeah, right! If anything, we weren’t harsh enough. She dated that asshole for a year before opening her eyes.
-You know what? If this guy is not decent, I’ll find her someone myself.
-Hah, because you’re so good at finding men…
-Hey, don’t be rude! I’m waiting for the right guy.
-I’ll find her someone good to take make her happy. And he’s gonna be cute too, not like Lurch.
-And speaking of cute, how does it feel to have your boyfriend back?
-Good. Not that we’ve seen much of each other. He came late last night and now I’m waiting for him to come back from work.
-The work you told me will pay him like crap?
-It’s a charity. He’s doing good things for the veterans.
-And don’t you dare tell him we talked about this sort of thing while he was deployed.
-Our secret. See you this weekend!
+Jessica takes a seat at her desk and begins looking for information.
+I should call the owner of the warehouse the vigilante had the motorcycle delivered to.
+They might be able to give me some of the information I need.
+She finds the number for one of the owners in the information she's already collected, and gives him a call.
+The phone rings for a few moments before a scratchy voice answers.
+Hello?
+Mr. George Tremblay?
+Yes?
+My name is Jessica O'Neil with the New Port Gazette.
+We are writing an article about the local business, and I was wondering if I could speak to you about the closed Cellco warehouse.
+The man gives her a heavy sigh.
+What about it?
+I have some questions about the building and its closure.
+Okay. Look, I don't really have time right now. If you want to meet up tomorrow, I can tell you whatever you need to know.
+That would be wonderful sir.
+After a brief exchange of information, the guy man hangs up without a farewell.
+Well, he sounds a bit snippy. Oh well.
+Now, let's see if any new info's turned up on our hero.
+She works for about an hour before Eve returns.
+Hey there, Eve.
+Eve nods in greeting.
+Jessica. How are you?
+Not bad. Mr. Birch wanted to see the two of us as soon as you got back.
+Oh? Curious. Well, let's not keeping him waiting.
+The two of them make their way to Birch's office, stopping at the receptionist's desk.
+A beautiful woman Jessica hasn't seen before stands to greet them.
+Can I help you?
+Jesus. That woman's gorgeous! Her face is like a Greek Goddess!
+Hi. I'm Jessica O'Neil, and this is Eve Beaulieu. Mr. Birch is expecting us.
+Of course. He's in a conference call at the moment. Please, take a seat, and I'll let you know when he's ready to see you.
+Eve and Jessica head over and sit down waiting to be called.
+So, have you made any progress with the police?
+Eve bobs her head nonchalantly.
+I've gathered what information I can, but it's difficult without a man on the inside.
+You still think someone on the force is involved with the rising crime wave?
+Oh, I do not think it. I know it.
+Eve's eyes narrow as if taking Jessica's measure.
+There were numerous emergency calls to 9-1-1 last year with a response time four-hundred percent slower than usual.
+That's not terribly unusual. There are some places the police really don't like to go.
+This isn't about specific neighborhoods. Their responses were delayed to areas that would normally see swift responses.
+In several cases, the police didn't show up until thirty minutes after the call was made.
+In one instance, the response time was almost an hour.
+Are you sure? They're actually delaying their response intentionally?
+In some cases. I can't prove it, but the evidence looks awfully suspicious.
+Their conversation is interrupted by the receptionist.
+Mr. Birch will see you now.
+She leads them into the office, then speaks briefly with Mr. Birch about administrative tasks.
+After giving his receptionist her instructions, he turns and smiles at Jessica and Eve.
+Good morning, ladies. Can I get either of you a drink?
+Uh, no thank you.
+Non, merci.
+He stands and motions toward the chairs.
+Please, have a seat. I wanted to have a talk with our newest hires.
+Don't worry, I don't bite. Not unless I have to, anyway. Ha!
+Both of them chuckle and take a seat, though Jessica feels more than a little nervous.
+I feel like I just got called into the Principal's office. Is that irony? No, just coincidence.
+Birch takes a seat on his desk and fixes both ladies with a smile.
+So, how was your first week? Everything going well?
+Very well.
+Yes. I've very much enjoyed myself.
+Great! Glad to hear it!
+You've both gotten settled in, figured out how things work around here.
+Yes, Mr. Birch. I feel very much at home.
+Suck up.
+And you, Jessica?
+Definitely. Everyone's been very helpful in getting me acclimated.
+Wonderful.
+So Jessica, this vigilante story. Have you made any progress?
+I have a good lead. I know it's going to take me to solid info. Definitely something we can print.
+What about that video you got from the police? Are we ready to publish it?
+What about that picture you got from the police? Are we ready to publish it?
+I spoke with a detective investigating the vigilante yesterday and tried to exchange information about the case. Specifically the revelation about the motorcycle.
+That they already knew about.
+Exactly. I figured if I tried giving them what they already have, they wouldn't think I got it from them in the first place.
+Covering your source. Not bad.
+He still won't be happy if I we use what I got from him. And we can burn a valuable asset.
+I'd like to talk to him again. Maybe I can convince him to give us consent to use the materials.
+Alright, I'll think about it.
+Now, Eve, tell me how the story you're working with Rosa is going.
+Excellent, sir. We've made some wonderful progress.
+Eve goes on for a few minutes, describing the work she and Rosa have been doing.
+I love working with Rosa. She's fantastic.
+It's truly a privilege to work here.
+Could you be sucking up any more? The only way you could be trying harder to make him like you is by sucking his dick.
+Oh. I hope she's not sucking his dick. That wouldn't bode well for me.
+Wonderful. Wonderful. It sounds like you're both doing very well here, and I think you both have what it takes to make it as journalists nowadays.
+See, here's the thing. Rosa and Duncan have proven themselves over the years. They're damn good at their jobs, and they'll keep being good at them.
+But I need something BOLD from my journalists. I need stories that will really POP!
+Duncan gets all riled up when I talk like this, but the truth is that boldness is what will keep this business going!
+Not that I want to turn our paper into some gossip rag for lonely and bored housewives who sit around reading about Batboy, or the coming apocalypse, or crap like that all day long.
+I need new blood that will reinvigorate this paper! Crooked politicians? Who gives a shit? But a politician using public funds to organize underground fight clubs? That sells!
+I want you two, fresh blood with fresh eyes, to really bring something new to this paper!
+He motions toward Eve, then Jessica.
+Be it with murder at construction sites, or shots of a vigilante beating the hell out of gansters.
+This is what we really need!
+Alright, that's all for now. Go out and do your thing, ladies.
+Before Jessica can say anything, Eve stands up and leans toward Mr. Birch.
+I won't disappoint you, sir.
+She plants a kiss on his cheek, much to Jessica's surprise and Mr. Birch's clear enjoyment.
+I know you won't! Not with that kind of energy, young lady.
+You slutty bitch. You really will do anything to make sure you get this job, won't you?
+Jessica stands up as well, giving Mr. Birch a smile.
+I'll make sure to find everything there is to know about this guy, Mr. Birch. I promise you.
+He almost looks a little disappointed.
+Remember, Jessica. Be bold, and take the initiative!
+Show me that hiring you was the right decision!
+You mean act like a horny little schoolgirl, like Eve there?
+If I don't give him a kiss too, she'll definitely have left this meeting with the upper hand. The bitch.
+Damnit. Do I do it? It's only a kiss. Maybe not one I should have to give, but still. It's just a kiss.
+No. I'm not going to act like that just because Eve did.
+I can still beat her the old fashioned way.
+I will, sir. You'll have your story. I promise you that.
+Excellent. Thanks for coming ladies.
+What the hell. Might as well keep the boss happy. Like Heather said, there's nothing wrong with a little flirting.
+And I can play this game too, Eve. If this is a competition, I'm gonna win it.
+Jessica leans in and plants a soft kiss on Birch's cheek. He's smiling wide as she does so.
+You'll have your story, sir. I promise you that.
+He laughs.
+I know you ladies will deliver. Now get out there and do your thing.
+The two of them head out together, both striding confidently.
+Well, you were awfully eager to please the boss, weren't you?
+Eve doesn't even break stride, giving just a hint of a smile.
+I told you, I'm going to have this job. Whatever it takes.
+Well, at least she's honest about it.
+Besides, you didn't seem too bothered by kissing him either.
+She's right. I wonder if I can do what women like Eve and Heather can.
+Back at their desks, Eve and Jessica get to chatting about their meeting with Birch, pondering his words.
+Well, regardless of whether or not there's only one position, it's clear he won't accept anything but total success.
+Which means we need to work our asses off finding something, or it will be \"au revoir\" for us both.
+Hey girls.
+Hey, Rosa. Please tell me that you brought extra of whatever the hell smells so good!
+Oh, this is lunch for all of us. Hope you like Chinese!
+Dieu merci! I am starving!
+The three of them have lunch together, discussing their individual assignments.
+I just have this feeling that I'm so close to finding something about this vigilante.
+I have a meeting tomorrow, and I'm hoping it'll point me toward his identity.
+Oh, by the way. I think I found somebody who can get us those files.
+Maybe you could have charmed him like you did the mayor, Jessica. I'm sure he would have given them to you then.
+Eve chuckles at her own joke, but Rosa shakes her head.
+Don't listen to her. We get the job done by acting like professionals.
+And yet Eve seems willing to use her looks. It's gonna make it hard to compete with her.
+After lunch, Jessica goes back to her desk and resumes her search for info on the vigilante.
+Rosa pops by a few minutes later.
+So, how did the meeting with Birch go?
+Well, he's happy, but the man is demanding.
+She explains how the meeting went.
+Look, don't let the old man push you into doing something dangerous.
+This job requires knowing when to stop before you get hurt. Talk to Duncan before going out to do something crazy.
+Ugh. You sound just like Conner.
+I'm sure Conner just cares about you.
+He does.
+He sounds like a sweet guy.
+He is. He's wonderful.
+We should go on a double date sometimes. You, me, and our boys. I don't get out with my husband much.
+That sounds great.
+The two of them get lost in conversation, and neither notices Tommy arrive.
+Uh, hey.
+Oh. Hi.
+Hey, Tommy! How's it going?
+Not too bad.
+Jess, you have something for Tommy to do now that he's here?
+I'm afraid not. I'd cleared my work since I thought I was going to be going out do meet someone today, but we moved it to tomorrow.
+Okay. Tommy, why don't you come with me. I've got an interview, and you can tag along.
+Sure.
+I've got to grab some things. Meet me out in front of the building, okay?
+Okay.
+So, how are you liking journalism? The grunt work hasn't ruined it for you?
+No, it's fine. They told us that's pretty much what it would be in school.
+I mean, I did think there would be more snooping around, and less, like, paperwork and searching through documents, you know?
+Hahaha! And what would you be doing if you weren't here right now?
+I don't know. Playing a game, probably, or maybe LARPing with my friends.
+That's the live-action stuff, right? With the fake swords and everything?
+Right. It's a lot of fun, actually.
+You could… come by and check it out, if you want? If you're still interested, you know?
+Oh, that's right. I did say I'd be interested in check it out.
+It does sound a little weird, but I did say I'd like to come see.
+Besides, I like the whole 'Lord of the Rings' kind of thing. It could be fun.
+Sure. I'd love to come by and check it out.
+Really? Awesome!
+I mean, I've never been to one of these things, so I have no idea what to do or wear.
+That's cool! I'll show you the ropes. And your regular clothes will be fine if you're just watching.
+I'll ask my friends when we're doing it next, and I'll get back to you tomorrow.
+Cool. I look forward to it. You should be going, though. Rosa will be waiting.
+Right. Right. I'll talk to you later.
+Bye!
+Oh, this sounds weird, and kind of boring. I only really showed any interest because Eve was mocking him.
+Plus, it would be SUPER awkward hanging around a bunch of high school kids.
+I'm sorry. I'm kind of swamped. I won't have any free time for a while.
+Oh. Okay. That's cool.
+If you want, you could bring some pictures to show me.
+Yeah. I'll do that.
+Anyway, you should get going. Rosa will be waiting.
+Right. I'll talk to you later.
 Bye.
-Jessica hangs up and looks at the time on her phone.
-Almost eight. Where is he? And why hasn't he called?
-Well, I'm not calling him either! I should grab something to eat.
-Jessica makes herself a quick dinner, heaving a sigh as the time passes by. Conner nowhere to be found.
-And here I thought I'm done eating alone...
-As the day comes to a close, Jessica waits patiently for her boyfriend to arrive.
-The wine helps to dull both the frustration and the hurt she feels at having Conner standing her up.
-Eventually, her eyes close and her hand slips between her legs, the wine drawing out the young woman’s need for sexual release.
-Drinking always makes me horny. Where are you, Conner?
-She is reminded of the long months she spent without the man she loves, satisfying her own urges whenever they struck, no matter how much she desired to feel her boyfriend’s caress.
-*sigh* Well, I have another busy day tomorrow, so I guess I’ll turn in, since it’s looking like you’re not getting home any time soon.
-Unwilling to wait any longer for Conner, Jessica heads off to bed.
-She strips down to her panties before climbing under the covers.
-She is restless, tossing and turning and watching the clock creep from nine to ten. Her body burning with desire.
-Jessica’s hand slips between her legs and inside her panties once more, her fingers attempting to give her the satisfaction she craves.
-Ooooh.
-Her fingers rub swiftly over her sensitive clit, pulling soft moans of bliss from the stressed and eager young woman.
-The pleasure is wonderful, but not quite what she’d hoped for. All day she’d been anxiously hoping she’d have a long, rigid phallus thrusting between her legs.
-Well, if Conner’s dick won’t fuck me, I know someone who will.
-Jessica reaches into her nightstand and takes out her vibrator.
-It’s well-worn from Conner’s time deployed in Afghanistan.
-I’d hoped to retire you. But looks like you need to put me to sleep tonight.
-Jessica slides her panties down her shapely thighs and strokes herself with her fingers.
-She tries to picture Conner’s hand there.
-Her fingers move against the warm softness of her sex as she imagines Conner exploring her hot flower with his touch.
-She switches on the vibrator and presses it against her clit.
-Ohhhhh… yes… Conner.
-She bucks her hips and presses the buzzing vibe to her hard clit.
-Her breasts quiver with tremors of her building ecstasy.
-Mmmmmmm!
-Jessica craves more stimulation.
-Her body aches to be touched, so she touches herself, her hands playing with her soft breasts.
-Her fingers plucking at her sensitive nipple.
-She pinches it so hard it hurts, sending hot jolts to her clit.
-She keeps the vibrator pressed against her throbbing bud.
-But she needs more…
-Playing with her clit isn’t enough to satisfy her tonight.
-Jessica needs to be fucked. And without a man around she is going to have to take matters into her own hand.
-Jessica craves much more than a vibrator against her clit.
-She switches off the vibrator and teases open her slick folds with the tapered tip.
-Oh god, yes. Put it inside me…
-She thrusts the toy into her aching channel, picturing Conner kneeling between her legs.
-Conner, baby, fuck me. Fuck me, sweetie.
-She plunges the vibrator in and out of her tight pussy.
-Her eyes close, the sound of her heavy breathing filling the room along with her growing moans of ecstasy.
-The joys she’d hoped Conner would bring her begin to fill her soaking womanhood, but she hardly thinks about it. The pleasure is too great.
-Oh god, that’s good. Oh, so good.
-Soon, the bedroom fills with her cries of joy, the pleasure quickly building within her cunt.
-Ahhhh! Yesss! Conner, fuck me! Fuck me harder!
-She presses the vibrator into her clutching cunt to the hilt and switches it on.
-Ahhhhhhhhhhhh!
-I’m cumming! Fuck me, Conner! Fuck me!
-In her mind’s eye, she sees Conner’s body as it thrusts against her own. She hears his own grunts of pleasure, and feels him pushing his chest into hers.
-The vibrator buzzing deep inside her sends rippling shockwaves of ecstasy through her body.
-Jessica arches on the bed, fucking herself with forceful strokes of the vibrator.
-Each time, the whirr is muffled by the spasming depths of her pussy.
-Orgasmic bliss fills the young woman, her sex convulsing as ecstasy flows up her body, washing over every inch of her flesh.
-Jessica’s mouth hangs open in a wordless cry of pleasure as she cums against the buzzing toy.
-Her mind goes blank, nothing remaining for her but the blissful world of sexual nirvana.
-Soon enough though, it fades. The young lady collapsing back to the bed.
-Spent at last, Jessica switches off the vibrator and places it on her tummy, enjoying the warmth coming from it.
-Finally feeling satisfied, she wearily pulls the blanket over her naked body and quickly falls asleep.
-She turns onto her hands and knees, her plump ass lifted into the air behind her.
-As she shifts, her fantasies become increasingly kinky.
-Oh, Conner, fuck me…
-She switches off the vibrator and plays the tip against her delicate folds.
-She pictures Conner kneeling behind her and teasing his cock at her pussy.
-As she does, she buries her face in the pillows and reaches back to run the fingers of her other hand down her crack.
-Mmmmmmmm!
-She pictures her neighbor, Heather Steel, kneeling beside Conner.
-In this steamy fantasy, the beautiful woman is kissing Conner as her fingers tease the clenched rim of Jessica’s asshole.
-Ohhhhh, Heather! What are you doing?
-Jessica pushes the dildo into her aching cunt and gently pushes a fingertip from her other hand into her asshole.
-Oh god, Heather! You’re playing with my ass!
-Yessss, fuck me while she fingers my ass, Conner!
-Jessica’s thrusting finger becomes Heather’s and the vibrator is Conner’s cock.
-She thrusts back against this fantasy of her boyfriend and switches the vibrator back on.
-The pleasure is instantaneous.
-Ohhhh my god!
-It pounds through her fluttering pussy.
-She can feel her orgasmic ecstasy clenching against the finger she is thrusting into her ass.
-Ohhhh my god, I’m cumming!
-Jessica imagines the beautiful neighbor moaning in reply and begins to urgently fuck her own ass with her finger.
-Yes! Yes! Cum for me, Conner! Cum inside me!
-She imagines Conner unleashing his cum deep inside her.
-Unfortunately, the vibrator can’t unload, but in her fantasy, she pictures Conner grabbing her ass with both hands and slamming his hardness deep into her pussy.
-Ohhhh, I can feel it!
-She almost can in the kinky depths of her imagination.
-Spent at last, Jessica switches off the vibrator and places it on the nightstand.
-Finally feeling satisfied, she wearily pulls the blanket over her naked body and quickly falls asleep.
-Ride his cock
-Suck his cock
-Mr. Birch (The vigilante is the story)
-Duncan (The crimewave is unusual)
-Eve (The police is dirty)
-Laugh at the innuendo
-Make your own dirty joke
-Fuck yourself with the vibrator
-Fuck yourself and play with your ass
+I hate to disappoint the kid like that. Oh well.
+Jessica goes back to her research, working on that as well as a few other projects.
+Before too long she realizes that whole work day has passed.
+Oh damn. It's late. I should get going.
+Grabbing her things, Jessica starts to head out, finding Eve still at her desk.
+You heading out soon?
+I'm almost done. I just need a few more minutes. This damn site loads way too slow.
+Alright. Have a good night.
+You too.
+It really is too bad she's such a bitch. We could be good friends, if she wasn't trying to get my job. Oh well.
+Jessica is groaning when she gets home, kicking off her shoes and beginning to undress immediately.
+Babe, you here?
+... Hmm. Guess not.
+Too bad. I could really do with a foot massage right about now.
+Going down to her undergarments, Jessica plops down onto the sofa and checks her phone, finding a text from Conner.
+be home l8, don't wait for dinner
+Love you
+She sighs.
+He's gonna be home late. Again. Great.
+I guess I'll just make myself something then.
+She puts on a pair of shorts, then fixes herself dinner.
+Taking a seat on the sofa, she turns on her Nook and begins reading, eating as she does so.
+The day's stress finally begins to bleed away, her body relaxing at last.
+After dinner, she calls Laura. They talk for a bit about various things.
+Laura tells her that their mother won't be visiting that week, her appointment having changed.
+Oh good. I love Mom, but I'm too tired to deal with her right now.
+Problems?
+Nothing much. Just a lot going on… Hang on.
+Oh. Mr. Parker's calling.
+Hey, I've got another call.
+Okay. Talk later, sis. Bye-bye!
+Bye, Laura.
+She changes over to the other call.
+Mr. Parker! Hi!
+Hey, Jessica! I'm on my way over. Be there in about thirty, maybe forty minutes.
+Okay! See you soon!
+Nothing much. Just a lot going on lately. With work and Conner.
+Don't worry about it.
+Okay.
+The sisters chat for a little while longer, then say goodbye to one another.
+Jessica takes a quick shower, then gets dressed and does her makeup.
+Well, if Conner's going to stay out late, I'm gonna have some fun without him.
+His loss… and maybe Mr. Parker's gain.
+She smiles, and blushes ever-so-slightly.
+Her phone chimes, a message from Parker coming up saying he's just outside.
+Grabbing her keys and purse, she heads out to join him.
+He's waiting outside for her, standing by his car.
+Good evening, Jessica. You look absolutely stunning tonight.
+Why, thank you so much, Mr. Parker. Although the real vision of beauty here is your car. She's gorgeous.
+Yeah, she's a classic. I don't drive her much.
+Well, I'm flattered you brought her out for me tonight.
+My pleasure. Here, let me get the door for you.
+Thank you.
+So, where are we meeting your friend?
+He's meeting us at a bar called the Red Baron.
+So what's he like, this friend of yours?
+His name's Jack. Ex-cop, like I said. I've known him for a long while. He's a… character. You'll see soon enough.
+But he's a good guy, and reliable.
+I hope he can put me in contact with someone. I could really use a source with contacts in the PD.
+Everything okay at work?
+Well, me and Eve, she's the new girl at work, had a chat with Birch earlier, and he made his expectations about \"revolutionizing the newspaper business\" pretty clear.
+Ah.
+As she's speaking, Parker puts his hand on her leg.
+Speaking of men and their expectations.
+Although this time I can't say I mind at all.
+She goes on talking while he gently squeezes, his hand just firm enough.
+I wouldn't be worried, Jess. I know you'll deliver.
+She gives him a warm smile and pats his hand. He pulls it away to concentrate on driving.
+I wouldn't be worried, Jess. I know you'll deliver.
+Thank you, Mr. Parker.
+Besides, this just how he gets. He's been going on about his whole \"newspaper revolution\" since I've known him.
+And if Birch is being too much of a pain, I can pay him a visit and talk to him.
+I appreciate it, but hopefully that won't be necessary. If your friend can help me, it would be a huge boon for my work.
+The bar is nicer than Jessica had been expecting. Pleasant smells are coming in from the kitchen, and the mountains of top-shelf liquor behind the bar are already making her mouth water.
+Not too loud, not too many people around. It's a good place to have a little talk.
+There. That guy sitting alone is Jack.
+Jack smiles when he sees Parker and rises to greet him.
+Hey, Jack.
+Jack nods, but his eyes are on Jessica.
+Hello. Ben mentioned his friend was pretty, but he undersold it.
+He picks up Jessica's hand, planting a rough kiss on her fingers.
+I'm Jack Dale. A pleasure to meet you.
+Charmed. I'm Jessica.
+Hey, Big Ben.
+Jack. Still a horn-dog, I see.
+Always. I was gonna bust your balls for not calling me for so long, but you made up for it with your choice of dates.
+Oh, we're just friends. I've known Mr. Parker for quite a while.
+Okay. Well, have a seat you guys. I'll go grab some drinks.
+Jack heads off to the bar, coming back a moment later with a mug of beer and a martini.
+Martini for the lady. And let's see if old Big Ben here can still drink like a man.
+Do I have a choice?
+Hell no. Beer is the best lubricant. For friendly conversation.
+Hehe. Subtle.
+So, Jessica, how do you know Big Ben here?
+I'm a journalist working down at the New Port Gazette. Mr. Parker here is kind of my mentor, and has been sharing his years of experience with me.
+Many, many years, as a matter of fact.
+You're such an asshole, Jack.
+Guilty as charged. Gotta say, though, Ben here's still got his game if he has a friend like you, Jessica.
+Parker shakes his head and turns to Jessica.
+Don't pay him much mind. That's just how he is.
+Jessica smiles and takes a sip of her martini.
+So, Mr. Parker tells me you used to be a cop.
+Used to be. Now I'm a private eye.
+Jack pulls out a business card and hands it to her.
+Jack Dale Investigations. Seeing as how you're a journalist, I figure you might need some PI work from time to time. Call me if you ever need anything.
+Jack here is like a traveling salesman. He's always ready to peddle his wares.
+I never let an opportunity pass me by, that is true. Especially one as beautiful as you, Jessica.
+He gives her a wink, and Jessica has to keep from rolling her eyes.
+Oh brother.
+Well, I'm currently working a few stories that could use a good source in the NPPD.
+I was hoping you might be able to put me in contact with some of your buddies at the precinct. Someone willing to collaborate and share information from time to time.
+Like we used to do.
+Hmm. Well, I could introduce you to Detective Naomi Marshall.
+She's a young detective. Ambitious, honest, direct. If you have something to give her, she'll give you something back.
+Jessica sighs.
+Damn.
+What's wrong.
+I actually met Detective Marshall yesterday. We didn't get off to a good start.
+I don't think she likes me much.
+Don't worry about it. I'll give her a ring, makes sure she gives you another chance.
+She'll definitely expect something in return, not like the way I used to just give this old bastard anything he asked for.
+Hey, I solved more of your cases than I remember. And how many beers did I buy you?
+Not nearly enough.
+How many would have been enough?
+No such thing. Anyway, you're losing your memory, old man.
+Oh yeah? Remember the Kripke case? With the guy driving the Impala full of guns.
+That guy who thought Satan was trying to possess him? Come on, I would have solved that one.
+The two continue to bicker back and forth, Jessica listening to the two of them with amusement.
+Jack and Parker start telling Jessica their stories, about working together to solve cases and get stories for the paper.
+They can't agree on the details though, both of them claiming a greater contribution than the other.
+Jack is downing one beer after another, and encouraging the other two to do so as well.
+Jessica is taking tiny sips, while Parker keeps insisting he has to drive.
+Ah, lightweights! You used to be able to drink Ireland under the table, Ben!
+And speaking of old times, you still remember how to play pool?
+It's been a while, but I'll give it a shot.
+How about you, Jessica? Can you play?
+Oh yes.
+Jack downs the remainder of his beer and lets out a loud belch.
+Gonna grab another. Be right back.
+Here.
+Thank you. Jack certainly likes his beers, doesn't he?
+Oh, he's just getting started. I'll bet we have to dump him into a cab by evening's end.
+Jessica and Parker head over to the pool table, chatting until Jack returns, a beer in one hand and a martini in the other.
+Here you go, Jessica. It wouldn't be fair for us to play drunk while you're sober.
+Thank you.
+Hey, what's up with the Mr. Parker thing?
+You two seem close enough for you to call him Ben.
+Jessica shrugs.
+It's just a sign of respect.
+I keep trying to get her to call me Ben, but she's stubborn.
+And if I'm being honest, it's kind of kinky calling him Mr. Parker. It reminds me how naughty it is flirting with a man his age.
+Jack racks the balls while Parker gets a cue and chalks it up.
+Alright, old man. I'll even give you first break.
+Let's do it.
+Jessica sits back and watches.
+Mr. Parker certainly does have some interesting friends. Then again, the people I've been meeting lately have been fairly colorful.
+I wonder if Mr. Parker is the kind of person I could end up being. Hopefully not working at a newsstand, though.
+The game goes on with Parker and Jack throwing a great deal of shade each other's way.
+It's clear their relationship is genial, though, and that they're good, long-time friends.
+Jessica is quite amused listening to their back and forth, finding their interactions sweet.
+The fact that both of them keep trying to impress her with their shots is also flattering.
+Jessica plays herself, though it's been some time. She acquits herself well enough, despite not being nearly as good as Parker or Jack.
+She doesn't mind, though, and is just having fun hanging out with the guys.
+Jack is relentless with his flirting, passing endless compliments Jessica's way.
+And she definitely feels his eyes on her ass when she leans down to line up a shot.
+She thinks the alcohol is exacerbating Jack's need to flirt, quite an accomplishment considering how shameless he was before he was drunk.
+After a few games, Jack drunkenly drapes himself over his friend.
+Alright, Big Ben. Whaddya say we up the stakes, eh?
+What did you have in mind?
+Remember that baseball you caught at the World Series game?
+Back in 2000, when the stars aligned and the Gryphons actually made it? Of course. I still have the ball.
+Okay. One game, you and Jessica against me. I win, I get the ball.
+And if we win?
+Then not only will I talk to Detective Marshall, I'll become Jessica's informant. I still have quite a few contacts on the force.
+Hold on…
+Done! Let's do it!
+Well, that would be really nice, but…
+While Jack racks the balls, Jessica sidles up to Mr. Parker.
+Mr. Parker, you don't have to do this. Plus, I'm not a very good partner. I'll probably lose you that ball.
+Don't worry about it, Jess. It's just a ball.
+Besides, we have no plan to lose, right?
+No one plans to lose, it's just sort of happens!
+Trust me. We'll be fine.
+If you say so.
+Alright, Jessica. Your break. Let's see what you got.
+Jessica tries to show a confidence she doesn't have.
+My pleasure. And it's gonna be my pleasure to have you as an informant, Mr. Dales.
+Oh. So cocky. Makes you even prettier.
+Jessica just smirks and makes the break.
+As the game begins, Parker gets close to Jessica and helps her line up her shots.
+Alright. Just like that. Remember to hit the ball on the side to get the spin you need.
+Jessica nods slowly, lining up her shot while trying not to blush. Having his hands on hers and his body pressed so close is giving her pleasant sensation.
+As the game begins, Parker gets close to Jessica and helps her line up her shots.
+Alright. Just like that. Remember to hit the ball on the side to get the spin you need.
+Jessica nods slowly, lining up her shot.
+Her hit is perfect, making Jack scoff as she sinks her ball.
+Yo, wait your turn, Ben. That's just cheating, is what that is.
+After a few hits she finally misses, Jack stepping up to make his play.
+Jessica heads over back over to the bar.
+I'm not as rusty as I figured I would be. Or maybe Mr. Parker's just a good partner.
+Jessica takes a big sip of her drink, turning around just in time to see Jack miss.
+As Parker steps up to make his shot, Jack comes over to the bar to speak with her.
+Are you okay, knowing you're going to lose to a girl?
+He gives her a hearty but quiet laugh.
+Oh, I can't possibly lose.
+How so?
+I win, Big Ben's baseball becomes mine. You win, I get to see you again.
+It's win-win for me, sweetie.
+He raises his glass in a toast.
+May the best man win.
+After the drink, Jessica raises her glass again, but presents it to Jack.
+May the best woman win.
+He grins and takes a sip.
+Why, are you trying to get me drunk?
+Maybe, but I bet you're even better when you're drunk.
+And if not, all the better for me. Maybe Heather was right. Flirting a little to get what I need might not be so bad.
+Jack takes his turn, leaving a few solids on the table when he misses.
+Jessica steps up, sinking all the remaining stripes.
+Not bad at all, Jessica.
+Thank you. Now, let's see if I can put this away.
+Unfortunately, she fails to get the 8-ball in on the next shot.
+Ooooh, back luck.
+Sorry, Big Ben. Looks like that ball is mine.
+Well, I always thought you needed some balls.
+I'm sorry, Mr. Parker. I should have sunk that one.
+Hey, don't worry about it, Jess. He could still screw up.
+Jack takes his shots, sinking the remaining solids.
+He starts chalking up his cue again, mocking Mr. Parker while he does it.
+During that moment, though, Jessica gets an idea.
+Heather, I could kiss you.
+She leans on the side of the table, pulling her skirt up a bit and showing off her leg and her fishnets.
+Jack immediately takes notice, with Jessica running her fingers slowly up her thigh.
+Jack returns his concentration to the ball with some effort, then takes his shot, but Jessica's plan worked.
+The 8-ball rolls away, Jack audibly groaning in disappointment.
+Well, damn.
+God bless drunk, horny men.
+Parker doesn't even hesitate, moving to the other side to line up his shot.
+You can do it, Mr. Parker.
+Jack, old friend, you always did have a weakness…
+He easily and confidently sinks the final shot.
+...when it came to sinking the 8-ball.
+Among other things.
+Jessica cheers happily and hugs Parker close.
+Ah shit. And I was planning on lording that over him for the rest of his life. Was gonna call it \"Big Ben's Big Ball That Now Gives Him Blue Balls\". Or something. Whatever.
+Well, I guess fair's fair, and I have to live up to my end of the bet.
+And if I knew I'd get a big hug out of this, I would have played even harder.
+Then next time maybe you should play on my side.
+I'll remember that. You ain't as rusty as you made yourself out to be.
+Good game, you two.
+Jessica and Parker take a seat at the bar while Jack goes to get more beer.
+He comes back with two mugs, one for himself and one for Parker.
+Thanks, but I can't have any more. I've got to drive Jessica home.
+Ah, no worries. I'll make sure the police don't bother you tonight.
+Parker groans, but he accepts the mug and takes a sip.
+The group sits around and chats for a little while longer, Jack doing most of the talking.
+He begins to get a little wobbly on his feet, so Parker eventually gets up from the stool and has him sit down.
+I think you've maybe had enough.
+Nah, I'm good. I can handle a few more. Easy. I'm good at drinking.
+Jessica chuckles, amused by his slurred words.
+Yeah, I think maybe you're about done, buddy.
+Jack just keeps going, though, the group having a fun time for a little while longer.
+Well, this was a blast, guys, but I do need to get back home. Conner will probably be wondering where I am.
+Wait, you have a boyfriend? I thought you two were an item.
+Like we said, we're just friends, Jack.
+The two of them help Jack up. He hugs them both close, both Jessica and Parker deciding to use it to get him outside.
+Should we call you a cab, Jack?
+Nah, nah, nah. I brought my car. I'm good- good to drive.
+You're not even good enough to walk. Come on. We'll squeeze into my car, and I'll get you home.
+Okay. You're a good friend, Big Ben.
+Yeah, he's a pretty good guy.
+You still drive that old thing?
+I'm faithful to all my ladies.
+Jessica opens the door for Jack.
+Here you go.
+Actually, why don't you get inside first. Sitting by an open window would be good for him.
+Hehehe. The old man is afraid I'll puke in his car.
+She does as asked, Parker putting Jack in beside her, then getting in on the driver's side.
+Jessica finds herself squeezed between the two men, trying to make herself as small as possible.
+Huh. I wonder if this is what it feels like being in a two-man threesome.
+You okay, Jessica.
+Yeah. It's a bit tight, but I'm fine.
+Ha! I'm used to this kind of ride in Parker's little clown car.
+Parker starts the ignition, then reaches over to the gearshift.
+Sorry, Jess. Didn't think about this when I thought of this arrangement.
+Gently, she squeezes his hand while it's between her thighs, giving him a smile.
+No worries.
+Who knew such an old car would be a great way to get between a woman's legs?
+Don't be an ass.
+Hey man, it's just a joke. You're no fun when you're sober.
+Remember that night in the Havana Club, when you showed, ahem, 'The Tower' to that cute waitress?
+Jessica tries to hold back a laugh. She turns to Jack, and speaks sarcastically.
+What's 'The Tower'?
+It's, uh, it's nothing. Don't worry about it.
+Jessica is curious to know more, but she can see Parker is clearly embarrassed.
+It seems like he's a little shy in that area. Maybe I shouldn't push it.
+Leaning over, Jessica squeezes his arm.
+Hey, who hasn't done silly things when they're drunk?
+Well, it was a long time ago, and I don't really remember much about that night.
+That's too bad. That waitress was something else, man.
+That's what happens when you drink too much. I doubt you'll remember much tomorrow, bud.
+Jack turns his eyes to Jessica.
+Oh, I'll remember the important stuff.
+You better. You're my informant now, and don't you forget it.
+His laughter fills the tiny compartment.
+I know Mr. Parker seems shy in this area, but I've got to hear this story.
+So, Jack. Tell me about this… Tower.
+Jack leans in, a huge grin on his face, and pulls Jessica closer.
+Well, let's just say there's a reason I call him BIG Ben.
+You don't have to tell me.
+Wow, really? Who would have guessed.
+Huh. How about that.
+And he whipped that big boy out, right in front of the waitress! All because he lost a bet!
+A bet?
+Hahahaha! Yeah! The waitress had been flirting with him all night, and FLOP! Out it comes, and she just has this shocked look on her face, and we can't tell if she's horrified or horny! Ahahaha!
+Still laughing, Jack leans over and pats Parker on the back.
+Yeah, the old man had quite a way with the ladies back in the day.
+I'm almost glad I don't remember that night.
+It's a shame. I'm pretty sure that waitress liked what she saw.
+Parker blushes, with Jessica smiling at him.
+Poor guy. He's so bashful.
+Then again, if he's hung like a horse, I guess calling him 'poor guy' is kind of silly.
+That's what happens when you drink too much. I doubt you'll remember much tomorrow, bud.
+Jack turns his eyes to Jessica.
+Oh, I'll remember the important stuff.
+You better. You're my informant now, and don't you forget it.
+His laughter fills the tiny compartment.
+They pull into a small alley. Jack gets out of the car, then turns back around.
+Have a good one, Jack.
+It was a pleasure meeting you. We'll talk soon.
+I'm already looking forward to it. I'll let you know as soon as I have something for you.
+And feel free to call me any time, for anything.
+I will. Thanks, Jack.
+And call me more often, you old bastard.
+Jack stumbles away toward his building, Parker watching as he goes.
+I want to make sure he goes inside. He gets into trouble when he's drunk.
+He didn't seem so bad.
+Oh, tonight he was behaving himself, if you can believe that.
+Maybe he's getting old after all, or he just wanted to make a good impression with you.
+If you don't mind, I'd like to wait a few minutes. Just to make sure he doesn't sneak back out.
+Not a problem. It's nice of you to watch out for him like this.
+I'd say he'd do the same for me, but if I tried to sneak out drinking, he'd just join me.
+Not surprising at all.
+The two talk for a bit to occupy themselves for the next few minutes.
+I appreciate you introducing me to Jack.
+He'll be a good source of info. He knows a lot of police officers.
+It's a damn good thing we won that game.
+Plus, we saved your ball.
+He laughs.
+Which makes me very happy. I really didn't want to lose that.
+You did say it was just a ball.
+Yeah, I was lying. I really love that thing. But it was worth the risk.
+When Jack doesn't reappear, Parker drives back to Jessica's building.
+Thanks for inviting me. This was a fun evening.
+I'm glad you enjoyed it. Have a good night, Jessica.
+You too, Mr. Parker.
+So, about you and that waitress. You really don't remember what happened?
+He sighs, and turns away.
+I actually remember the whole thing. I just didn't want to give Jack the satisfaction.
+And he can't keep his mouth shut about these kind of things?
+What kind of things.
+Ugh. She and I had sex later that night.
+Just showing your dick was enough to make her drop her panties?
+Well no, we'd been flirting the whole night. Showing her my… thing… was just a little encouragement, I guess.
+Well, I know for a fact it ain't little.
+Well, according to Jack, it ain't little.
+Parker smiles and gives a little nod, but doesn't say anything.
+Just how big is it, I wonder?
+I couldn't tell through his pants.
+As amusing as this has been, I should probably leave well enough alone. He's clearly not comfortable talking about this.
+Anyway, we should probably call it a night.
+Agreed.
+Parker drives back to Jessica's building.
+Thanks for inviting me. This was a fun evening.
+I'm glad you enjoyed it. Have a good night, Jessica.
+You too, Mr. Parker.
+Now I'm too curious. I need to see just how big it is.
+As amusing as this has been, it's not a subject we should be talking about.
+Anyway, we should probably call it a night.
+Agreed.
+Parker drives back to Jessica's building.
+Thanks for inviting me. This was a fun evening.
+I'm glad you enjoyed it. Have a good night, Jessica.
+You too, Mr. Parker.
+So… Mr. Parker… will you show it to me?
+I… uh, I beg your pardon?
+Yeah. I'm intrigued. I want to see how big your dick is.
+Y- um- I mean- what, now? Here?
+Yeah. It's dark, there's no traffic. No one will see.
+He goes a little pale, his eyes darting about.
+Come on. You showed the waitress. You can show me.
+After looking around for a moment more, he nods to Jessica, then reaches down to unzip his pants.
+He produces his cock, throbbing in his hand as he brings it out to display.
+Wow. It is pretty big, and it's not even hard yet.
+Can.. can you get hard for me? I want to see how big it can get.
+A week ago, I wouldn't have been sure, but given what we've been doing lately, I have hope.
+Jessica smiles, feeling a warm sensation in her chest.
+I guess I've brought new life to an old man, and his little man.
+Parker's hand moves up and down his dick, Jessica watching in fascination.
+The beers aren't exactly helping.
+What would help? I want to see it hard.
+Parker opens his mouth, but before he can say anything Jessica hits upon the answer.
+Tell me about the waitress.
+Oh, Jessica. She was incredible. Not as hot as you, but still wonderful.
+A beautiful latina, sensuous, busty, with shapely legs and full, pouty lips.
+Sounds a bit like Rosa, actually. I wonder if he has a type.
+Where did you fuck her, hmm? Where did you stick that big dick in her hot pussy?
+Right here, where we're sitting.
+Jessica laughs, though her eyes never leave his penis.
+Wow. I'm sitting where he fucked a woman with that gorgeous dick of his. That's so naughty!
+Tell me how you fucked her.
+Jessica is leaning in close, softly whispering in his ear.
+Well, we started by kissing.
+Much to her surprise, he pulls her close and kisses her softly.
+What the…?!
+For a brief moment, she's utterly shocked at his audacity, and considers pulling away.
+However, she hesitates for but a moment before she kisses him as well.
+Holy shit! I'm actually doing this! Kissing another man!
+She takes in deep breaths, her heart pounding in her chest.
+He kisses nothing like Conner. He's gentler, not so rough.
+Eventually, she pulls out of the kiss and looks down at his dick.
+It definitely looks bigger.
+What did you do next?
+Suddenly, Parker shifts, pushing Jessica back against the seat.
+He pushes her skirt up and spreads her legs, moving his body between them.
+Jessica instinctively tries to shuffle away from him, but can't manage to move in the cramped confines of the car.
+What the… what are you doing?
+You asked for details, and showing you is easier than explaining.
+Mr. Parker, I'm not going to have sex with you.
+Didn't say we would. I'm just reenacting it.
+She can feel his rigid cock sliding between her legs, along her quickly moistening sex.
+Okay, this is pretty goddamn kinky, and it feels incredible, but…
+It's fine… I think. He's rubbing his dick along my panties, not my pussy.
+Mr. Parker sighs through barely opened lips, savoring the feeling of Jessica's crotch against his erect manhood.
+I took her roughly, then and there, just like this.
+He begins shoving his cock forward for emphasis, running it roughly along her sex.
+Shoving in hard and fast.
+Oh my god! This is incredible! And it feels amazing!
+I wonder what this must look like from outside, an old man fucking a young woman, her legs spread wide?
+I feel like such a slut!
+Was her pussy tight?
+So tight. She felt wonderful, and she was already screaming in pleasure.
+And she had great tits, like these.
+His hand comes up to caress her breast, gently but firmly squeezing.
+He continues to thrust his cock back and forth all the while, never once letting up.
+This is definitely the sluttiest thing I've ever done in my life. I'm so goddamn wet, I'm pretty sure I'm gonna have to take my panties off before I go home!
+And I can definitely feel Mr. Parker's dick getting hard!
+He gets bolder, lifting her leg onto his arm, and beginning to thrust against Jessica longer and harder.
+Fuck, I'm so wet!
+Oh my god! If he keeps going, he's gonna cum all over me! I'll have another man's cum spraying on me!
+The hand that had been stroking her breast moves up, grabbing her dress and pulling it down to reveal her naked bosom.
+Hey!
+Oh Jessica! Your breasts are even more beautiful than hers were!
+Jessica's hand comes up, covering her breast.
+She knows she's losing control of the situation and that it's time to stop it.
+I can feel he's hard already, and I can't get more wet than this.
+He begins rapidly sliding his dick along her sex, clearly on his way to an orgasm.
+Okay, I think it worked.
+What?
+We were trying to get you hard, remember? And I'm pretty sure you're hard. You should take your seat again.
+Oh. Oh, right. Okay.
+Parker moves back to the driver's seat, Jessica taking a moment to fix her clothes.
+When she's done, she turns back to him to see his huge, throbbing cock sitting in his hand.
+Wow. You really are huge.
+He simply smiles, nodding slightly while continuing to stroke his hand back and forth.
+He looks like he's trying to hold back, as if he's ready to explode and trying not to.
+God, I want to touch it so bad! After all that, I really want to feel his dick!
+But this has maybe gone way too far.
+No, no. This has gone too far already. Even if I really would like to get my fingers around it.
+Thank you… for showing me. It's beautiful.
+Can you take care of yourself now?
+His eyes show that he longs for her touch, but he knows he won't receive it.
+He nods, beginning to stroke himself faster and faster.
+Keep telling me what you were doing. How you fucked her.
+Mr. Parker chuckles and nods.
+Next I sat here, and she climbed on my lap.
+She started riding me hard, slamming herself onto my dick.
+It's too bad the club's gone. We could've gone back and found her.
+I would have liked to watch you fuck her with your big cock.
+He laughs, stroking himself faster.
+That'd be so hot, watching her bouncing up and down in your lap, her big brown boobs bouncing in your face, your huge cock sliding in and out of her sopping wet pussy…
+Oh god!
+Jessica's words are too much for him. His member twitches in his hand, ropes of cum spraying all about as he tries in vain to contain it.
+All the while, Jessica watches with wide eyes, entranced by the spectacle.
+Once he's finally done, Mr. Parker pulls his hand from his penis, wiping the cum off on his pants.
+Well, that was the craziest thing I've done in a while.
+Yeah, that was the craziest thing I've {b}ever{/b} done!
+The two settle in and get back on the road. After a short and slightly awkward ride, they pull up outside Jessica's building.
+Well, have a good night. I need to get home and wash these clothes before it stains.
+Jessica chuckles.
+You do that. I'll see you later, Mr. Parker.
+I want to touch it so bad! Touching the cock of a man old enough to be my grandad would be the dirtiest thing I've ever done!
+She leans closer, her hand probing out toward his dick.
+Seeing what she's doing, Mr Parker stops stroking it and points it toward her.
+Her fingers merely brush at it at first, teasing him.
+Oh my god! What am I doing?! He was just thrusting his dick against my pussy, and now I'm touching it!
+I really can't believe I'm doing this to someone other than Conner.
+Well, there was Victor, but that was different, it was for work.
+She forces herself not to think about it, and closes her fingers around his cock.
+Parker gasps, making Jessica smile a little bit.
+It's a little softer than Conner's. Probably because of its size.
+Her hand begins moving up down, slowly and steadily. Pre-cum is already leaking from the tip, a little dripping onto her hand.
+Maybe a little bit of my own juices, too, given how wet I was when he was rubbing me.
+Jessica's eyes come up, her gaze locking with his, her hand continuing to go up and down.
+Do you like it?
+He gives a small nod.
+Yeah.
+She speeds up, moving her hand faster and faster.
+I want to see you cum. I want to see your dick explode.
+Cum for me.
+His eyes close, his breathing heavy.
+Was the waitress fucking you this fast?
+Faster.
+Her hand moves faster, then faster, Mr. Parker's breath coming quicker and growing louder.
+Did you cum in her pussy? In her hot fucking pussy?
+Yes!
+Then cum! Cum just like you did in her pussy!
+Ah! Jessica! I'm gonna cum!
+Do it! Cum for me!
+He cries out, his cock throbbing in Jessica's hand.
+His cum sprays everywhere, on his pants, his shirt, the steering wheel, all while Jessica continues to stroke his huge cock.
+She watches in fascination, her eyes wide and her heart beating rapidly.
+There's so much cum! I wonder when he last came like this?
+Eventually it comes to an end, Jessica releasing the warm, slick member.
+She grabs a tissue from her purse, cleaning her own hand before passing him one as well.
+Thank you.
+Wow. It's everywhere. You really made a mess.
+Yeah. I guess I did. That's alright.
+He takes a moment to clean up the cum and fix his clothes.
+Well, we should go.
+Yeah. We should.
+The two settle in and get back on the road. After a short and slightly awkward ride, they pull up outside Jessica's building.
+Well, Mr. Parker, thank you for a wonderful evening.
+My pleasure, Jessica. That was the wildest thing I've done in a long time.
+That was the wildest thing I've {b}ever{/b} done. Anyway, have a good night, Mr. Parker.
+You too, Jessica.
+Thanks for playing version 0.30BETA of my game, I hope you liked it. If you feel like supporting my project, or leaving some feedback, you can visit my {a=https://www.patreon.com/stoperart}Patreon page{/a}. Thank you.
+Thanks for playing version 0.30BETA of my game, I hope you liked it. If you feel like supporting my project, or leaving some feedback, you can visit my {a=https://www.patreon.com/stoperart}Patreon page{/a}. Thank you.
+Agree to accompany him
+Say you have plans already
+Let it go
+Try to tempt him
+Just say goodbye
+Give him a kiss
+Agree to go with him
+Maybe some other time
+Ask Jack for details
+Drop the subject
+Ask to see it
+Thank him for showing it
+Touch him
